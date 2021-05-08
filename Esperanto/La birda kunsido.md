@@ -8,7 +8,7 @@ Por eviti la morton de ĉiuj birdoj, fama birdo organizas grandan kunsidon.
 La fama birdo salutas ĉiujn birdojn, kiuj partoprenas la kunsidon.
 "Bonvenon. Ni estas ĉi tie por trovi estonton al la birdaro."
 "Ni travivis katastrofojn."
-"Ni travivis la meteoriton.???"
+"Ni travivis la meteoriton."
 "Ni travivis la homaron."
 "Ni travivos la finon de tero."
 
