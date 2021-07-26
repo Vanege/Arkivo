@@ -5,10 +5,10 @@ Denloka hay sosyal regula, ki planta no haki na cuya maxmo gao kom tiga metro.
 Dento yakingi, ki moy plantali bioyen abil na taslum kufi lumin cel na bono jiwa.
 
 Fe hataya, ban dina, dayvento preporta bija of teli loka.
-Xafe watumon, bija kufi xunjan, celki ren abil na oko, ki bija ofya jongo fe dahunli drevo hu da totalmo nenkonedo in hin wadi.
+Xafe watumon, bija kufi xunjan, celki ren abil na oko, ki bija ofya jongo fe dahunli drevo hu da is totalmo nenkonedo in hin wadi.
 
 Fe xoru, planta hu da ogar in wadi koxcu tem hin preata.
-Fol max ki jowey doyan fe jongo, max ki to abil na tahamul ji adatecu fol alocu.
+Fol max ki jowey is doyan fe jongo, max ki to abil na tahamul ji adatecu fol alocu.
 
 Hin newe drevo xunjan ji xunjan.
 Mas newe drevo no esto na xunjan lefe limite fe tiga metro.
@@ -38,4 +38,4 @@ Mas posxunjan no bilpul. Fe fini, drevo sokutu.
 Xafe bofun, sola ruata.
 Moy planta abil na oko kano de gao drevo hu da fe nunya total leta per geo.
 Te morcu, ji tesu dahun ji bija awfley.
-Bannumer planta morcu kos sokutu, mas minimum fe nunya dome totalmo koberido har lumin.
+Bannumer planta morcu kos sokutu, mas minimum fe nunya dome is totalmo koberido har lumin.
