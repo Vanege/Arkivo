@@ -1,7 +1,7 @@
 La birda kunsido
 
 La akvonivelo estas pli kaj pli alta, kaj ĝi ne ĉesas altiĝi.
-Baldaŭ, ĉiuj partoj de la tero estos kovrita de akvo.
+Baldaŭ, ĉiuj partoj de la tero estos kovritaj de akvo.
 Baldaŭ, birdoj ne plu havos lokon por surteriĝi.
 Por eviti la morton de ĉiuj birdoj, fama birdo organizas grandan kunsidon.
 
@@ -13,7 +13,7 @@ La fama birdo salutas ĉiujn birdojn, kiuj partoprenas la kunsidon.
 "Ni travivos la finon de tero."
 
 La fama birdo demandas:
-"Ĉiu iu el vi havas ideon por helpi nin travivi?"
+"Ĉu iu el vi havas ideon por helpi nin travivi?"
 "Ni devas aŭskulti la ideojn de ĉiuj."
 
 Apodo proksimiĝas kaj diras:
