@@ -1,4 +1,4 @@
-La gramatiko de la planlingvo [Elefen]((https://elefen.org/)) estas ege simila al tiu de Esperanto. Anstataŭ trairi tutan kurson, Esperantisto bezonas nur koni la ĉefajn gramatikajn malsimilaĵojn por sufiĉe bone kompreni kaj uzi la lingvon.
+La gramatiko de la planlingvo [Elefen](https://elefen.org/) estas ege simila al tiu de Esperanto. Anstataŭ trairi tutan kurson, Esperantisto bezonas nur koni la ĉefajn gramatikajn malsimilaĵojn por sufiĉe bone kompreni kaj uzi la lingvon.
 
 Ĉi tiu paĝo provas listigi la ĉefajn gramatikajn malsimilaĵojn. Poste, helpe de [vortaro](https://elefen.org/disionario/), vi povos relative sekure uzi la lingvon. Per [uzado](https://elefen.org/), vi povos memori la vortojn kaj la gramatikajn detalojn.
 
