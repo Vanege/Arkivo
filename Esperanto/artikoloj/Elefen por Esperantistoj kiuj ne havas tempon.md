@@ -119,11 +119,6 @@ Se la perverba priskribo estas adjektivo, eblas verbigi ĝin:
 
 > Me **felisi** el: Mi *feliĉigas* lin
 
-La vorto por la "ĉu" (Esperanto) de eblara subfrazo estas la sama vorto por la "se" de kondiĉo. (Same kiel en la Angla kaj latinidaj lingvoj.)
-
-> Me no sabe **si** el ancora vive.: Mi ne scias *ĉu* ri ankoraŭ vivas.  
-> Me va come **si** lo es bon. : Mi manĝos *se* ĝi bonas.
-
 ---
 
 Noto de la aŭtoro: Mi fakte ankoraŭ lernas la lingvon. Se mi rimarkas ion gravan, mi ĝisdatigos ĉi tiun liston.

@@ -7,8 +7,8 @@ Cuando un salamandra ateni un eda spesifada, el debe bevi un licuida brun spesia
 Alora, la salamandra perde sua brancias, e sua forma cambia intera.
 Alora, la salamandra no plu pote vive en acua, ma el pote vive sur tera.
 
-Ante, nun ia cexa sur la tradision.
-Ma con la pasa de tempo, sempre plu salamandras ia espresa contra lo.
+A ante, nun ia cexa sur la tradision.
+Ma con la pasa de tempo, sempre plu salamandras ia espresa se contra lo.
 "La lago es calda e comforta."
 "Me gusta ja como me aspeta."
 "Ta ce on no cambia me."
@@ -18,7 +18,7 @@ Salamandras ci refusa bevi la licuida cual adulti es xef axolotes.
 La salamandras adulte no es sasiada par la enfantes, ci no vole cambia sua forma.
 La adultes pensa ce acel es insulta contra la adultes, contra sua belia.
 La adultes dise ce acel es insulta contra sua dios.
-"La dios va puni vua desrespeta."
+"La dios va puni vosa desrespeta."
 Ma la majoria de la axolotes no plu bevi ja acel. 
 "Nos es ja adulte como nos es ja."
 
@@ -34,7 +34,7 @@ La adultes dise:
 Ma la axolotes continua refusa bevi la licuida brun per adulti.
 
 Pos alga tempo, la lago deveni intera nontransparente.
-La otra salamandras no sabe si axolotes ancora vive en lo.
+La otra salamandras no sabe esce axolotes ancora vive en lo.
 La salamandras pasea a via.
 La acua de la lago no plu conveni per sua bebes.
 "A los ci refusa segue la relijio, nos va parla sur la axolotes condenada."
