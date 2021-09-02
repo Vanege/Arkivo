@@ -13,7 +13,7 @@ Ju pli medio estas diversa je specioj, des pli ĝi povas rezisti kaj adaptiĝi a
 La nova arbo kreskas kaj kreskas.
 Sed la nova arbo ne ĉesis kreski antaŭ la limo de tri metroj.
 Ri tre ŝatas lumon, kaj ĉiam volas pli.
-Ri komencas krei grandan sistemon de branĉoj kaj folio, por kapti pli da sunlumo.
+Ri komencas krei grandan sistemon de branĉoj kaj folioj, por kapti pli da sunlumo.
 
 Apudaj plantoj diras al la nova arbo:
 "Bonvolu ĉesi kreski, ni ne plu ricevas sufiĉe da lumo."
