@@ -23,7 +23,7 @@ La panda dise: "No, no. Nos no ave tal cosa."
 La dragon es vidable confusada.
 La panda continua parla: "Nos ne conserva. Tota cosas cual nos nesesa trova ja se a sirca."
 
-La panda dise: "Me es aora fame, donce me ia colie bambu. Este tu ta gusta come con me?".
+La panda dise: "Me es aora fame, donce me ia colie bambu. Esce tu ta gusta come con me?".
 La dragon, ci es fatigada par sua viaja longa, aseta.
 La panda joia e dise: "Si tu nesesa alga cosa, demanda simple. La cosas funsiona tal asi."
 
