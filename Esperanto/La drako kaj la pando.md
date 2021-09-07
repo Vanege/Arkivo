@@ -25,7 +25,7 @@ La pando pludiras: "Ni ne konservas. Ĉio, kion ni bezonas jam troviĝas ĉirka�
 
 La pando diras: "Mi nun malsatas, do mi kolektis bambuon. Ĉu vi ŝatus manĝi kun mi?".
 La drako, kiu estas laca pro sia longa vojaĝo, akceptas.
-La pando ĝojas, kaj diras "Se vi bezonas ion, simple petu. Tiel aferoj funkcias ĉi tie."
+La pando ĝojas, kaj diras: "Se vi bezonas ion, simple petu. Tiel aferoj funkcias ĉi tie."
 
 Ili manĝas bongustan bambusupon kaj parolas dum longa tempo.
 La pando, kiu estas tre amika, rakontas multe pri sia vivo.
