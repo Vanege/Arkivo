@@ -37,7 +37,8 @@ Ban dina, visitane piu (VP) geocu in jarden de kolormo okomar piu (KOP).
 
 VP: "Yu hare maxim meli jarden of moyto hu mi le oko da!"
 
-Kolormo okomar piu is surprisado. Dento is unyum mara ki bante loga to tas te.
+Kolormo okomar piu is surprisado.
+Dento is unyum mara ki bante loga to tas te.
 
 KOP: "Xukra. Mas yu suki misu jarden keseba?"
 

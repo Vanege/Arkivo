@@ -24,7 +24,7 @@ Moki rin ne plu estas amuze ĉar ri ne reagas.
 Do ili ĉesas ĝeni.
 Ili denove iras serĉi bluajn aferojn por sia propra nesto.
 
-Ekzistas malmultaj bluaj aferoj, sed multaj birdoj kiuj volas ilin.
+Ekzistas malmultaj bluaj aferoj, sed ekzistas multaj birdoj kiuj volas ilin.
 Birdoj ofte devas batali por bluaĵoj.
 Ofte okazas, ke birdo ŝtelas la aferojn de alia birdo.
 Tio senĉese kreas konfliktojn.
@@ -37,7 +37,8 @@ Iutage, vizitanta birdo (VB) surteriĝas en la ĝardeno de la kolorblinda birdo 
 
 VB: "Vi havas la plej belan ĝardenon el ĉiuj, kiujn mi vidis!"
 
-La kolorblinda birdo estas surprizata. Estas la unua fojo ke iu diras tion al ri.
+La kolorblinda birdo estas surprizata.
+Estas la unua fojo ke iu diras tion al ri.
 
 KB: "Dankon. Sed kial vi ŝatas mian ĝardenon?"
 
