@@ -9,7 +9,7 @@ La brua disputo ĝenas delfenon kiu loĝas apude.
 La delfeno havas ideon:
 La meduzo kaj la saketo devas diri kion ili kapablas fari.
 La delfeno neŭtrale juĝos.
-Se ri pensas ke kapablo de iu estas impona, ri donas poenton tiu.
+Se ri pensas ke kapablo de iu estas impona, ri donas poenton al tiu.
 Post tempo, tiu (la meduzo aŭ la saketo), kiu havos pli da poentoj ol la alia, venkos.
 
 Meduzo (M): "Mi aperis antaŭ preskaŭ ĉiuj vivaĵoj!"  
