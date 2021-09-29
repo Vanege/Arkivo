@@ -14,7 +14,7 @@ Kaj tiam, la komercisto rakontas siajn aventurojn al ili.
 
 La komercisto rakontas pri mirindaj lokoj.
 Kie troviĝas malfacilaj defioj kaj kiel ri kuraĝis kaj sukcesis.
-Kie ri batalis kontraŭ monstroj rapidaj kiel leopardoj kaj fortaj kiel ursoj.
+Kie ri batalis kontraŭ monstroj rapidaj kiel leopardoj kaj monstroj fortaj kiel ursoj.
 Kompreneble, la rakontoj tre imponas la infanojn.
 Anstataŭ uzi la veran nomon de la komercisto, ili diras "la heroo".
 
@@ -32,14 +32,14 @@ Kaj ili populariĝas inter la aliaj membroj de la komunumo.
 
 Iutage, okazas paniko en la kunikla komunumo.
 Vulpo danĝere proksimiĝas de la nestoj.
-Grupo de kunikloj rapide iras al la nesto de la heroo por peti helpon.
+Reage, grupo de kunikloj rapide iras al la nesto de la heroo por peti helpon.
 
 "Heroo!"
 "Monstro alproksimiĝas!"
 "Ni bezonas iun kuraĝan!"
 "Iun rapidan!"
 "Iun fortan!"
-"Ni scias ke vi povas defendi nin ĉiujn"
+"Ni scias ke vi povas defendi nin ĉiujn!"
 
 La heroo vekiĝas kaj ekkonscias pri la situacio.
 Ri stresas.
@@ -66,7 +66,7 @@ La heroo blovas pro trankviliĝo.
 Ri pensas ke ri multe stresis pro nenio.
 Ri pensas:
 "Mi nun povas reveni al la aliaj kunikloj."
-"Mi diros al ili, ke mi konvinkis la monstron ne ataki nin".
+"Mi diros al ili, ke mi konvinkis la monstron ne ataki nin."
 "Mia reputacio kiel negocanto iĝos eĉ pli alta!" 
 
 La kuniklo turnas sian kapon kaj komencas piediri direkte al la komunumo.
