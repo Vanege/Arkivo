@@ -4,7 +4,7 @@ Jen juna vulpo.
 Ria felo tute blankas, kiel valo post freŝa neĝado.
 Absolute neniu makulo bruna aŭ nigra videblas.
 En la vulparo, nenio pli puras ol ria felo, kaj ri tre fieras pri tio.
-Pro tio, ri estas nomata “la pura vulpo”.
+Pro tio, ri estas nomata "la pura vulpo".
 
 Alvenas vintro.
 Matene, kiam vulpoj eliras de sia nesto, ili vidas pejzaĝon nekredeble blankan.
@@ -40,11 +40,11 @@ Bedaŭrinde, eĉ pli neĝis dum la nokto, do ajna spuro estas kovrata.
 La vulpo bezonas ideon... kaj ri trovas!
 
 Nevideble, per rapida salto, la pura vulpo sukcesas kapti kuniklon.
-Per siaj dentoj, ri tranĉas la kolon.
+Per siaj dentoj, ri tranĉas rian kolon.
 Sur la mortinta kuniklo, la vulpo ruliĝas, tiel ke ria felo estas kovrita de freŝa ruĝa sango.
-“Tiel, mi estos videbla!” pensas la vulpo.
+"Tiel, mi estos videbla!" pensas la vulpo.
 
 Efektive, post iom da tempo, unu el la familianoj de la vulpo rimarkas ruĝan formon moviĝi en distanco.
 Sed, vidinte nenion similan, kaj pro la vido de sango multa, la familiano ekfuĝas kaj ekkrias:
 
-“Fuĝu, estas monstro!”
+"Fuĝu, estas monstro!"
