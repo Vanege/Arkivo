@@ -6,11 +6,12 @@ Globasa is a modern constructed language with a simple creole-inspired analytic 
 
 Each letter represents a sound, so the pronunciation and the transcription is predictable.
 
-Vowels: **a**, **e** (as in *let*), **i** (as *ee* in *seen*), **o** (as in *for*), **u** (as *oo* in *moon*)
+Vowels: **a** (as in *Thai*), **e** (as in *let*), **i** (as in *ski*), **o** (as in *more*), **u** (as in *flu*)
 
-Consonants: **b**, **c** (as *ch* in *chair*), **d**, **f**, **g**, **h** (as *ch* in *Bach*), **j**, **k**, **l**, **m**, **n**, **p**, **r**, **s**, **t**, **v**, **w**, **x** (as *sh* in *shop*), **y**, **z**
+Consonants: **b**, **c** (as *ch* in *chair*), **d**, **f**, **g**, **h** (as *ch* in *Bach* or *h* as in *hat*), **j**, **k**, **l**, **m**, **n**, **p**, **r**, **s**, **t**, **v**, **w**, **x** (as *sh* in *shop*), **y**, **z**
 
-The vowel before the last consonant of a word is stressed.
+If the word ends in a vowel, the stress in on the second-to-last vowel.
+If the word ends in a consonant, the stress is on the last vowel.
 
 ## PRONOUNS
 
@@ -44,44 +45,47 @@ A particle or an adverb can be placed before the verb if the information in nece
 - **Mi le yam pingo.** (I ate the apple.)
 - **Mi xa yam pingo.** (I will eat apples.)
 
-## NO DEFINITE ARTICLE
+## NO ARTICLE
 
-Globasa has no need for a definite article (the). Definiteness mostly understood by context. If necessary, the word **hin** (this) can be used.
+Globasa has no need for a definite article (the). Definiteness mostly understood by context. If necessary, the words **hin** (this) or **den** (that) can be used.
 
 - **myaw** (a cat, the cat)
 - **hin myaw** (the cat)
 
-## TWO GROUPS
+## TWO CLASSES OF WORDS
 
-The vast majority of existing words, and new words, belong to one of those two groups:
+The vast majority of content words, and new words, belong to one of those two groups:
 
-- noun/verbs (*n/v*) (**danse** (a dance, to dance), **sui** (water, to water), **myaw** (cat, to cat))
-- adjective/adverbs (*adj/adv*) (**bon** (good, well), **velosi** (quick, quickly))
+noun/verbs (*n/v*)
+
+- **danse** (a dance, to dance)
+- **lubi** (love, to love)
+- **myaw** (cat, "to cat"))
+
+adjective/adverbs (*adj/adv*)
+
+- **bon** (good, well)
+- **velosi** (quick, quickly)
 
 In these groups, every noun can be used as a verb without changing the word (and inversely). Every adjective can be used as an adverb without changing the word (and inversely).
 
 The role of a word is defined by its position. In general:
 
-When two noun/verbs follow each other, the second one is a verb
+When two noun/verbs follow each other, the second one is a verb.
 
 - myaw **danse** (a cat dances)
-- danse **myaw** (the dance cats) (Globasa is a suiting language for poetry)
 
-If a verb can't be preceded by a noun, it has to be preceded by **na**.
-
-- **na danse** (to dance)
-
-An adjective-adverb placed before a noun is an adjective.
+An adjective/adverb placed before a noun is an adjective.
 
 - **bon** myaw (a **good** cat)
 
-If the adjective-adverb does not follow a noun, it is an adverb.
+If the adjective/adverb does not follow a noun, it is an adverb.
 
 - myaw **bon** yam / myaw yam **bon** (the cat eats **well**)
 
 ## TO BE
 
-All conjugations of verb to be is **sen**. It must not be omitted because it helps to interpret the other words properly based on their position in the sentence.
+All conjugations of the verb *to be* is **sen**.
 
 - To **sen** bon. (It **is** good.)
 
