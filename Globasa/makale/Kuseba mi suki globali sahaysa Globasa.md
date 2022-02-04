@@ -22,7 +22,7 @@ Kam denloka ren day suki yam?
 
 Mimbay, Globasa sahay fe moy basa, no sol fe Niponsa.
 Lexi de Globasa sen bonmo seletido cel na sen sim kom lexi de multi basa.
-Fe misal, "day" pia sen sim kom lexi in Putunhwa, ji "suki" pi sen sim kom lexi in Putunhwa, Indonesisa ji Hindisa.
+Fe misal, "day" pia sen sim kom lexi in Putunhwa, ji "suki" pi sen sim kom lexi in Indonesisa ji Hindisa.
 Asel de lexi sen jinjimo okoible in resmi menalari.
 
 Fe folo, Globasa abil na sen beyongupul fe misu xaya, mas fe fato, Globasa uje sen beyongupul tas mi fe nunya.
