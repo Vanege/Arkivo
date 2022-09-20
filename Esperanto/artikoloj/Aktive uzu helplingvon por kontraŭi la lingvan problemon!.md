@@ -1,4 +1,3 @@
-
 Mi volas ke la lingva problemo estu solvita.
 
 Nuntempe, por internacia komunikado, la Angla estas ĉefe uzata.
@@ -29,7 +28,7 @@ Tiuj lingvoj estas multege pli rapide lerneblaj ol la Angla aŭ ajna natura ling
 - ili havas malpli da gramatikaj reguloj
 - ili preskaŭ ne havas esceptojn
 - oni devas memori multe malpli ĉar oni reuzas vortajn elementojn anstataŭ lerni sinonimojn
-- se oni respektas la bazajn regulojn, oni ne eraras, eĉ se oni parolas en nekutima maniero
+- se oni respektas la bazajn regulojn, oni ne povas erari, eĉ se oni parolas en nekutima maniero
 
 Tia lingvo, kiun oni povas regi pli bone ol denaska lingvo, estas la plej taŭga por internacia komunikado.
 
