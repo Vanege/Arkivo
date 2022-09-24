@@ -240,14 +240,14 @@ Bandera de Usa sen ke kolor?
 ||Bandera de Usa sen roso ji sefide ji blue.||
 
 -------------
--- or
+--- or
 
-un = 1️⃣
-dua = 2️⃣
-tiga = 3️⃣
-care = 4️⃣
-lima = 5️⃣
-sisa = 6️⃣
+un: 1️⃣
+dua: 2️⃣
+tiga: 3️⃣
+care: 4️⃣
+lima: 5️⃣
+sisa: 6️⃣
 
 numer = 0️⃣/1️⃣/2️⃣/3️⃣/4️⃣/5️⃣/6️⃣/7️⃣/.../🔟/...
 
@@ -256,14 +256,14 @@ dadu = 🎲
 Numer de dadu sen un or dua or tiga or care or lima or sisa.
 
 ------------
--- numer
+--- numer
 
-un = 1️⃣
-dua = 2️⃣
-tiga = 3️⃣
-care = 4️⃣
-lima = 5️⃣
-sisa = 6️⃣
+un: 1️⃣
+dua: 2️⃣
+tiga: 3️⃣
+care: 4️⃣
+lima: 5️⃣
+sisa: 6️⃣
 
 numer = 0️⃣/1️⃣/2️⃣/3️⃣/4️⃣/5️⃣/6️⃣/7️⃣/.../🔟/...
 
@@ -289,3 +289,38 @@ kuku = 🐔
 🐔🐔🐔🐔
 Hay kenumer kuku?
 ||Hay care kuku.||
+
+--------------
+--- hare
+
+insan = 🧍
+kapi = 🧑
+oko = 👁
+hanta = 🖐️
+un: 1️⃣
+dua: 2️⃣
+tiga: 3️⃣
+lima: 5️⃣
+des: 🔟
+
+Insan hare un kapi.
+Insan hare dua oko.
+Insan hare dua hanta.
+Hanta hare lima dari.
+
+ore = 👂
+
+Insan hare kenumer ore?
+||dua||
+
+bwaw = 🐕
+
+Bwaw hare kenumer ore?
+||dua||
+
+bandera de Kolombi = 🇨🇴
+
+kolor = roso / orange / jalo / kijawi / blue / purpuro / syahe / sefide / ...
+
+Bandera de Kolombi hare kenumer kolor?
+||tiga||
