@@ -206,7 +206,6 @@ Roso dayra sen dayra.
 myaw = 🐈
 maux = 🐁
 mahi = 🐟
-jubin = 🧀
 
 hewan = 🐈/🐁/🐟/🐘/🐓/🦕/🪰/... 
 
@@ -272,9 +271,9 @@ dua myaw = 🐈🐈
 tiga myaw = 🐈🐈🐈
 care myaw = 🐈🐈🐈🐈
 
-mumu = 🐮
+mumu = 🐄
 
-🐮🐮
+🐄🐄
 Hay kenumer mumu?
 Hay dua mumu.
 
@@ -324,3 +323,131 @@ kolor = roso / orange / jalo / kijawi / blue / purpuro / syahe / sefide / ...
 
 Bandera de Kolombi hare kenumer kolor?
 ||tiga||
+
+------------
+--- te | to
+
+te = [🧍/🐈/👶/🐁/👵/🧔/🪰/...]
+to = [🧢/❄️/🥭/🧀/🏠/💡/...]
+
+Te jiwa.
+To no jiwa.
+
+🧍
+Te sen insan.
+🐈
+Te sen myaw.
+🐁
+Te sen maux.
+
+🥭
+To sen mango.
+🧀
+To sen jubin.
+🏠
+To sen baytu.
+
+👶
+||Te|| sen bebe.
+📕
+||To|| sen kitabu.
+💩
+||To|| sen feka.
+🐄
+||Te|| sen mumu.
+
+----------
+--- plu
+
+🧍
+Te sen insan.
+Te sen un insan.
+🧍🧍
+Ete sen insan.
+Ete sen dua insan.
+Ete sen plu insan.
+🧍🧍🧍
+Ete sen insan.
+Ete sen tiga insan.
+Ete sen plu insan.
+🧍🧍🧍🧍...
+Ete sen insan.
+Ete sen plu insan.
+
+kapi = 🧑
+oko = 👁
+ore = 👂
+munte = 👄
+
+Insan hare kapi.
+Insan hare oko.
+Insan hare plu oko.
+Insan hare ore.
+Insan hare plu ore.
+
+Kam insan hare plu kapi? (si or no)
+||no||
+
+Kam insan hare plu oko? (si or no)
+||si||
+||dua oko ordinari||
+
+Kam insan hare plu munte? (si or no)
+||no||
+||Insan hare sol un munte||
+
+----------
+--- ete | oto
+
+te = [🧍/🐈/👶/🐁/👵/🧔/🪰/...]
+to = [🧢/❄️/🥭/🧀/🏠/💡/...]
+ete = plu te
+oto = plu to
+
+👩♀️🧔♂️
+Ete sen femixu ji manixu.
+Ete sen insan.
+Ete sen plu insan.
+
+🦊🐺🐰🐝
+Ete sen rubahe ji haul ji kargux ji beze.
+Ete sen hewan.
+Ete sen plu hewan. 
+
+🟥🟩
+Oto sen roso ji kijawi.
+Oto sen kolor.
+Oto sen plu kolor.
+
+👕🎩
+Oto sen kamisa ji topi.
+Oto sen labas.
+Oto sen plu labas.
+
+🧍👶🦊
+||Ete|| sen hewan.
+
+🧡💛💚💙💜
+||Oto|| sen tutum.
+
+--------------
+--- kete | keto
+
+name = 🏷️👶 = Maria / Nushi / Mohammed / Jose / Wei / Yan / Ali / David / Li / Michael ...
+myaw = 🐈
+maux = 🐁
+jubin = 🧀
+
+Myaw name Feliks.
+Maux name Stuart.
+Jubin name Kamember.
+
+Feliks sen kete?
+Feliks sen myaw.
+
+Stuart sen kete?
+||Stuart sen maux.||
+
+Kamember sen keto?
+||Kamember sen jubin.||
+
