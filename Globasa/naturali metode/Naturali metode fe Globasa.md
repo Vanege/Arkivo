@@ -451,3 +451,121 @@ Stuart sen kete?
 Kamember sen keto?
 ||Kamember sen jubin.||
 
+------------
+--- de
+
+Banana sen jalo.
+Jalo sen kolor.
+Jalo sen kolor de banana.
+Kolor de banana sen keto?
+Jalo.
+Kolor de banan sen jalo.
+
+Myaw name Feliks.
+Myaw sen Feliks.
+Feliks sen name.
+Feliks sen name de myaw.
+Name de myaw sen keto?
+Feliks.
+Name de myaw sen Feliks.
+Myaw name keto?
+Feliks.
+Myaw name Feliks.
+
+insan = 🧍
+oko = 👁
+
+Insan hare dua oko.
+Dua sen numer.
+Dua sen numer de oko.
+Numer de oko sen keto?
+Dua.
+Numer de oko sen dua.
+
+yam = 🍽/🍴/🥢
+maux = 🐁
+jubin = 🧀
+
+Maux yam jubin.
+Jubin sen yam.
+Jubin sen yam de maux.
+Yam de maux sen keto?
+Jubin.
+Yam de maux sen jubin.
+Maux yam keto?
+Jubin.
+Maux yam jubin.
+
+kapi = 🧑
+
+Insan hare kapi.
+Kapi sen hare.
+Kapi sen hare de insan.
+Kapi sen hare de kete?
+Insan.
+Kapi sen hare de insan.
+
+ore = 👂
+
+Kam ore sen hare de insan?
+||si||
+
+Jubin sen yam de kete?
+||maux||
+
+brokoli = 🥦
+
+Kolor de brokoli sen keto?
+||kijawi||
+
+
+------------
+--- mi | yu
+
+------------
+--- imi | uyu
+
+------------
+--- -su
+
+----------
+--- vole | na
+
+----------
+--- abil | musi, 
+
+-----------
+--- ki
+
+----------
+--- hin
+
+----------
+--- mas
+
+----------
+--- 
+
+------------
+--- in
+
+------------
+--- fe
+
+------------
+--- ... lefeplasilexi
+
+------------
+--- le | nun | xa
+
+------------
+--- lefe | xafe
+
+------------
+--- leki | xaki
+
+------------
+--- -ya
+
+------------
+--- fe leya | fe nunya | fe xeya
