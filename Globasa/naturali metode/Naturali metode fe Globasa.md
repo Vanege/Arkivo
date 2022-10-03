@@ -518,15 +518,76 @@ brokoli = 🥦
 Kolor de brokoli sen keto?
 ||kijawi||
 
-
 ------------
 --- mi | yu
+
+manixu = 👨
+femixu = 👩
+ixu = 🧑/👨/👩
+
+Hay dua insan: manixu ji femixu.
+Name de manixu sen Ali.
+Name de femixu sen Maria.
+
+Ali: "Salon, mi sen Ali!"
+Ali: "Yu sen kete?"
+Maria: "Salom, mi sen Maria!"
+
+Nun hay ixu.
+Name de ixu sen Robin.
+
+Ali: "Salom, yu sen kete?"
+Robin: "Salom, Mi sen Robin!"
+Ali: "Salom, kam yu sen manixu?"
+Robin: "No, mi no sen manixu."
+Maria: "Kam yu sen femixu?"
+Robin: "No, mi no sen menixu."
+Robin: "Mi sen sol ixu. Mi sen insan."
+
+Kam Ali sen femixu?
+||no||
+
+Kam Maria sen femixu?
+||si||
+
+Kam Robin sen manixu or femixu?
+||no||
+
+Kam Ali sen ixu?
+||si||
+
+----------
+--- -su
+
+Name de manixu sen Ali.
+Name de te sen Ali.
+Tesu name sen Ali.
+
+Ali: "Name de mi sen Ali."
+Ali: "Misu name sen Ali."
+Ali: "Name de yu sen keto?"
+Ali: "Yusu name sen keto?"
+Maria: "Name de mi sen Maria."
+Maria: "Misu name sen Maria."
+
+Myaw name Feliks.
+Myawsu name sen Feliks.
+Tesu name sen Feliks.
+
+Insan hare Feliks.
+Insansu myaw sen kete?
+Feliks.
+
+...
+
+Banana sen fruta.
+Kam tosu kolor sen jalo?
+||si||
+
 
 ------------
 --- imi | uyu
 
-------------
---- -su
 
 ----------
 --- vole | na
