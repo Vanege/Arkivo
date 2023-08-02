@@ -10,7 +10,7 @@ Kaj tiu mondo estas plena je kreemo, je surprizoj, je objektivoj.
 
 Ekzemple, estas temploj kie oni devas solvi puzlojn.
 
-Estas misioj kiujn roluloj kiujn oni povas solvi.
+Estas misioj kiujn oni povas solvi.
 
 Oni povas provi atingi lokon, kiu estas malfacile atingebla.
 
@@ -40,4 +40,4 @@ Kiam ideo ŝajnas havi sencon, tiu ideo verŝajne funkcios.
 
 Por resumi, mi diros tiel:
 
-Zelda TOTK estas bonega ludo, ĉar la ludo senfine objektivojn, kiujn oni povas libere elekti, kaj oni povas atingi la objektivojn per la manieroj kiujn oni volas.
+Zelda TOTK estas bonega ludo, ĉar la ludo senfine donas objektivojn, kiujn oni povas libere elekti, kaj oni povas atingi la objektivojn per la manieroj kiujn oni volas.

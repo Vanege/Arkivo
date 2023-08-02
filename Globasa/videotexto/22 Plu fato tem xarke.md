@@ -22,13 +22,13 @@ Maxori jongu abil na idigi sui pas sesu nabxox.
 
 Mas bannumer te no abil, fe folo, ete musi na kostante suyon, hata denwatu hu ete somno.
 
-4) Xarke abil na hisi eletrili kungan.
+4) Xarke abil na hisi eletrili medan.
 
-Moy hewan produti eletrili kungan, ji xarke abil na hisi oto.
+Moy hewan produti eletrili medan, ji xarke abil na hisi oto.
 
 Denmaner, xarke abil na ewreka bexikaryen bax xatu.
 
-Ible, den abilya sahay xarke cel na ewreka hoyo.
+Ible, den abilxey sahay xarke cel na ewreka hoyo.
 
 5) Bannumer xarke abil na sencu day lao.
 
@@ -44,4 +44,4 @@ Dento okur denwatu hu na ewreka seksoli tonyen sen daymo posasan.
 
 Bete sen genili kopi of femyen.
 
-Den abilya pia beewreka fe bannumer retilyen ji duabioyen, mas nilwatu fe mamoyen.
+Den abilxey pia beewreka fe bannumer retilyen ji duabioyen, mas nilwatu fe mamoyen.

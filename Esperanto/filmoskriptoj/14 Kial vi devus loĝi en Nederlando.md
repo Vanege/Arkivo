@@ -40,7 +40,7 @@ Oni tiel sentas sin multe malpli izolita.
 
 Do tre bona por homoj kiuj trovas aŭtojn danĝerajn por la homoj kaj la natura medio.
 
-Bicikli estas multe pli agrabla kaj bona por la sano, ĉiuokaze.
+Bicikli estas multe pli agrable kaj bona por la sano, ĉiuokaze.
 
 Kvara kialo: Nederlando havas grandan akceptemon je diverseco.
 
@@ -60,7 +60,7 @@ Nederlandanoj tre bone parolas la Anglan!
 
 Eblas bone vivi sen lerni alian lingvon se oni loĝas en la oriento de la lando.
 
-Sed lerni la lokan lingvon estas grava por senti sin pli bone integrita.
+Sed lerni la lokan lingvon estas grave por senti sin pli bone integrita.
 
 https://en.wikipedia.org/wiki/World_Happiness_Report
 

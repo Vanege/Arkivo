@@ -8,7 +8,7 @@ Pia asman ji baxgeo sen kentanible.
 
 Ji den globa sen pul fe idey, surprisa ji cele.
 
-Fe misal, hay multi dinidom denloka hu ren musi na hala [puzzle/enigma].
+Fe misal, hay multi dinidom denloka hu ren musi na hala puzle.
 
 Hay multi misyon hu person gibe da hu ren abil na hala da.
 
@@ -32,7 +32,7 @@ Dento okur koski yuxixey komputa realsim fisikali motor, denloka hu junluku, kow
 
 Ren abil na tongogi xey in yuxixey cel na krea he banto.
 
-Pimpan, ren abil na hala [puzzle/enigma] yon maner hu kreayen de yuxixey le dayible no fikir da!
+Pimpan, ren abil na hala puzle yon maner hu kreayen de yuxixey le dayible no fikir da!
 
 Ren ganjoncu daymo cinonpul dur na yuxi, koski denwatu hu ren fatmin neo xey, ren kriban moywatu sen jayezado.
 

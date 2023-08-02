@@ -30,6 +30,6 @@ Do lasu aerumi dum almenaŭ 10 minutoj, tio verŝajne sufiĉas por malaltigi la 
 
 Do jen, tuj post vekiĝi, trinku, vidu sunlumon, aerumu.
 
-Poste, manĝu iomete, kaj faru la plej malfacilan aŭ timigan tasko unue.
+Poste, manĝu iomete, kaj faru la plej malfacilan aŭ timigan taskon unue.
 
 Tiel vi sentos vin trankvila dum la tuta resto de la tago!
