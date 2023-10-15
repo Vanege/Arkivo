@@ -4,7 +4,7 @@ Mi le peti tas ChatGPT lista fe 9 (nue) swal cel na bon xorkone bante.
 
 Mi xa gibe tas yu hin 9 (nue) swal, ji xafe moyun to, mi xa gibe jawabu tem mi.
 
-Denmaner, yu xa jixi lilmo max tem hin person hu da jawgu hin canal.
+Denmaner, yu xa jixi lilmo max tem hin person hu da kwanli hin canal.
 
 1. Yu max suki keto: kafe or cay?
 

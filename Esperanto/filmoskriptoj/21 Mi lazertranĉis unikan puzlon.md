@@ -12,7 +12,7 @@ Jen kion mi faris per ĝi:
 
 Se vi interesiĝas pri tio, serĉu la anglajn vortojn "Aperiodic tiling" en la interreto.
 
-Eekzistas retejo kie oni povas elŝuti dosierojn por uzi en lasertranĉilo.
+Ekzistas retejo kie oni povas elŝuti dosierojn por uzi en lasertranĉilo.
 
 Ekzemple, mi metis la dosieron de la puzlo en la komputilo ligita al la lasertranĉilo.
 

@@ -1,34 +1,34 @@
-A) Ren pimpan imanu ki perya de Dunya sen totalmo konedo.
+A) Ren pimpan imanu ki geoli perya de Dunya sen totalmo konedo.
 
 Mas no, ren pimpan ewreka neo isula.
 
-Fe misal, in Antartiko, kos likwidocu de ayse-nahir, ren banmarali oko neo isula.
+Fe misal, in Antartiko, kos likwidocu de ayse-nahir, ren dumarali oko neo isula.
 
-Mas dento no sen solunpul seba de ewreka fe neo isula.
+Mas dento no sen solo seba de ewreka fe neo isula.
 
-B) Fe ban mara, neo isula precu kos volkano in daybahari.
+B) Fe dumara, neo isula precu kos volkano in daybahari.
 
-Lava guticu kos kontato ton bardi sui, fe folo, neo baxbahari jabal precu, finki oto precu supra sui.
+Lava guticu kos kontato ton bardipul sui, fe folo, neo baxbaharili jabal precu, finki oto precu supra sui.
 
-Denmaner, Nipon pimpan hare neo isula.
+Denmaner, Nipon pimpan xorhare neo isula.
 
 In Wikipedia, hay bon lista fe isula hu da nerleli precu.
 
-C) Alo ofata fe isula sen geotreme.
+C) Alo mamba fe isula sen geotreme.
 
-Fe misal, in 2013 (dua kilo des tiga), isula le precu in Paki, xafe bala geotreme.
+Fe misal, in nyan 2013 (dua kilo des tiga), isula le precu in Paki, xafe bala geotreme.
 
 Mas, xafe 3 (tiga) nyan, to le awcu cel in sui kos sesu wajenje.
 
-Denwatu hu to le sonzay, sui wey isula le sen bon riproduti-dom cel mahi.
+Denwatu hu to le sonzay, sui wey isula le sen bon riproduti-dom tas mahi.
 
 D) Finili ofata fe isula, hu mi vole na zekaru da, sen suna isula.
 
 Plu maxim bon misal sen in Nederi.
 
-Denloka, isula yon name "polders" sen kreado cel na ogar, na nongyo, na gardi anti bahari...
+Denloka, isula har name "polders" sen kreado cel na ogar, na nongyo, na gardi anti bahari...
 
-Mas fe ban mara, pia cel na krea naturali hifazidom cel piu.
+Mas fe dumara, pia cel na krea naturali hifazidom tas piu.
 
 https://earthobservatory.nasa.gov/images/149755/ice-lost-island-found
 

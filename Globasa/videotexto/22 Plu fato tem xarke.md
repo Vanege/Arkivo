@@ -1,8 +1,8 @@
-1) Xarke no hare osto, mas guzruf.
+1) Xarke no hare osto, fe tayti, guzruf.
 
 Guzruf sen maxmo fleksiible ji minmo wajenpul kom osto.
 
-Xarke pia hare day ganzo har espesyal yow.
+Xarke hare pia day ganzo har espesyal yow.
 
 To sahay xarke na flota in sui, denpul kom balon in hawa.
 
@@ -12,13 +12,13 @@ Moydua to sahay xarke na harkacu yon min energi.
 
 Te name balena-xarke, ji to abil na lungoje max kom 18 metro.
 
-Te sen maxim day rukemonyen, hu da no sen mamoyen.
+Te sen maxim day ruke-sutunyen, hu da no sen mamoyen.
 
 Sim kom balena, te yam yon na filtro sui.
 
 3) Bannumer jongu fe xarke haja na suyon cel na nafasu.
 
-Maxori jongu abil na idigi sui pas sesu nabxox.
+Maxori jongu abil na pompu sui pas sesu nabxox.
 
 Mas bannumer te no abil, fe folo, ete musi na kostante suyon, hata denwatu hu ete somno.
 
@@ -28,20 +28,20 @@ Moy hewan produti eletrili medan, ji xarke abil na hisi oto.
 
 Denmaner, xarke abil na ewreka bexikaryen bax xatu.
 
-Ible, den abilxey sahay xarke cel na ewreka hoyo.
+Ible, den abilxey sahay xarke na ewreka hoyo.
 
-5) Bannumer xarke abil na sencu day lao.
+5) Bannumer xarke abil na sencu daymo lao.
 
-Un [greenland]xarke le dadal laoje fe daju 400 nyan.
+Un xarke le dadal laoje fe daju 400 nyan.
 
-To sen maxim lao rukemonyen hu da sonzay.
+To sen maxim lao ruke-sutunyen hu da sonzay.
 
 6) Nenseksoli riproduti.
 
-Zebra-xarke abil na produti bebe nenyon aksyon de manyen.
+Zebra-xarke abil na produti bete nenyon aksyon de manyen.
 
 Dento okur denwatu hu na ewreka seksoli tonyen sen daymo posasan.
 
 Bete sen genili kopi of femyen.
 
-Den abilxey pia beewreka fe bannumer retilyen ji duabioyen, mas nilwatu fe mamoyen.
+Den abilxey beewreka pia fe bannumer retilyen ji duabioyen, mas nilwatu fe mamoyen.

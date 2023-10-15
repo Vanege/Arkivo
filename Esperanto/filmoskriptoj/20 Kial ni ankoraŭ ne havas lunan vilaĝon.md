@@ -2,7 +2,7 @@ La unua fojo ke homoj paŝis sur la Luno, tio estis en 1969.
 
 Tio estas pli ol 50 jarojn antaŭe!
 
-Do kial neniu homoj loĝas tie nun?
+Do kial neniu homo loĝas tie nun?
 
 Kial la homaro ankoraŭ ne havas domojn sur la Luno?
 
@@ -22,7 +22,7 @@ Suno aŭ alia fonto de energio ne estas tro granda problemo, ĉar eblas loĝi en
 
 Ne plu estas malfacile sendi multe da maso en la kosmo, ĉar nunaj raketoj povas fari tion por nur eta frakcio de la kostoj de antaŭ 50 jaroj.
 
-Do ĉio kio mankas, aŭ ĉio kio ankoraŭ ne estas surloke produktata, povas esti alportita per rakedoj.
+Do ĉio kio mankas, aŭ ĉio kio ankoraŭ ne estas surloke produktata, povas esti alportita per raketoj.
 
 Ni povas alporti aŭtonomajn vivlokojn, kiuj izoligas de la danĝera Luna medio.
 

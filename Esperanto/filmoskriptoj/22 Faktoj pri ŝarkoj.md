@@ -1,6 +1,6 @@
 1) Ŝarkoj ne havas oston, sed kartilagon.
 
-Kartilago estas pli fleksebla kaj malpeza ol osto.
+Kartilago estas pli fleksebla kaj malpli peza ol osto.
 
 Ŝarkoj ankaŭ havas grandan hepaton kun speciala oleo.
 
@@ -24,7 +24,7 @@ Sed kelkaj specioj ne povas, do ili devas konstante naĝi, eĉ kiam ili dormas.
 
 4) Ŝarkoj povas percepti elektrajn kampojn.
 
-Bestoj produktas elektrajn kampojn, kaj ŝarkojn povas percepti ilin.
+Bestoj produktas elektrajn kampojn, kaj ŝarkoj povas percepti ilin.
 
 Tiel ŝarkoj povas trovi predojn kaŝitajn sub sablo.
 
@@ -44,4 +44,4 @@ Tio okazas kiam trovi seksan partneron estas tre malfacile.
 
 La ido estas genetika kopio de la ina ŝarko.
 
-Tiu kapablo ankaŭ estis trovita ĉe kelkaj reptilioj kaj amfibioj, sed neniam ĉe mamuloj.
+Tiu kapablo ankaŭ estas trovita ĉe kelkaj reptilioj kaj amfibioj, sed neniam ĉe mamuloj.

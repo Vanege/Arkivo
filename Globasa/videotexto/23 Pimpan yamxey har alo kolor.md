@@ -1,16 +1,16 @@
 1) Plu-kolorli karote
 
-Rasa fe karote Englisali "Purple Haze F1" hare exli bruno mon, ji inli orange mon.
+Rasa fe karote "Purple Haze F1", in Englisa, hare bruno exli mon, ji orange inli mon.
 
 Dento okur koski exli mon inhare max purpuro molekul.
 
-Den molekul name Englisali "anthocyanin" ji oto pimpan bekolyo bon cel sehaya.
+Den molekul name "anthocyanin" in Englisa ji oto pimpan bekolyo bon cel sehaya.
 
 2) Pinku patato
 
-Rasa Englisali "Mountain Rose" sen tongogi of roso patato ji sefide patato (si, pia oto sonzay).
+Rasa "Mountain Rose" in Englisa sen tongogi of roso patato ji sefide patato (si, pia oto sonzay).
 
-Den rasa beevolu Englisali "Colorado State University".
+Den rasa beevolu "Colorado State University".
 
 Bon cel jyen-xey, mas pia cel na dekora salada.
 
@@ -18,17 +18,17 @@ Bon cel jyen-xey, mas pia cel na dekora salada.
 
 Kiwifruta, mas jalo fe tayti fe kijawi.
 
-Oto sen lilmo max sukeripul ji lilmo min motsune.
+Oto sen lilmo maxmo sukeripul ji lilmo minmo motsupul.
 
-Mas oto sen samamo hataripul cel insan hu da hare alergi cel kiwifruta.
+Mas oto sen samamo hataripul tas insan hu da hare alergi fe kiwifruta.
 
 4) Purpuro flurakabiji
 
-Purpuro kolor ata of, ripul, molekul "anthocyanin".
+Purpuro kolor ofata, ripul, molekul "anthocyanin".
 
 Fol intreneto, oto sen minmo amaro kom sefide flurakabiji.
 
-Fe normaya, mi no suki sefide flurakabiji kos amaroya, mas mi vole na xidu den to.
+Normapul, mi no suki sefide flurakabiji kos amaroya, mas mi vole na xidu to.
 
 Kam yu jixi ki pia kijawi ji orange flurakabiji sonzay?
 
@@ -40,7 +40,7 @@ Te le porgi bija ton aselli Amerikayen ji le fale tongogi.
 
 Xafe lungo watu, ji yon sahay de alo yen, prehay dento hu ete xorhare da.
 
-Oto cuyo sen bon cel na oko.
+Oto cuyo sen bon cel na beoko.
 
 Oto no hare bon xetocu fe na jinji beyam koski oto hare godo nexaste.
 

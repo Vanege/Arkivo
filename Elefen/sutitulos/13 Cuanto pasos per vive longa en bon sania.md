@@ -1,8 +1,8 @@
-Un analise de 15 publicis siensal con cuasi 50 000 persones indica cual ta es la cuantia ideal de pasos per un bon sania e un vive longa.
+Un analise de 15 (des-sinco) publicis siensal con cuasi 50 000 (sincodes mil) persones indica cual ta es la cuantia ideal de pasos per un bon sania e un vive longa.
 
-Per los ci ave plu ca 60 anios, la risca de mori temprana es minima con sirca 6 000 a 8 000 pasos a cada dia.
+Per los ci ave plu ca 60 (sesdes) anios, la risca de mori temprana es minima con sirca 6 000 (ses mil) a 8 000 (oto mil) pasos a cada dia.
 
-Per los ci ave min ca 60 anios, la risca de mori temprana es minima con sirca 8 000 a 10 000 pasos a cada dia.
+Per los ci ave min ca 60 (sesdes) anios, la risca de mori temprana es minima con sirca 8 000 a 10 000 pasos a cada dia.
 
 Plu pasos ca acel no redui plu la risca de mori temprana.
 
@@ -24,7 +24,7 @@ Pasea es ance multe bon per la psice!
 
 Los ci pasea periodal esperia min stresa e ave min sintomes de depresa.
 
-La risca de dementia pote es reduida de 50%!
+La risca de dementia pote es reduida de 50% (sincodes persento)!
 
 Otra tipos de sporte pote ance aida per la sania, ma pasea es un cosa cual cuasi cadun pote fa. 
 

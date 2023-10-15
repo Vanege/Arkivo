@@ -4,13 +4,13 @@ Mas nundin, mi xa gibe tas yu plu seba cel na NO ogar in Nederi.
 
 Unyum, baytu sen daymo kimapul.
 
-No kufi baytu bekostrui in jaleli desnyan, ji, fe nunya, no hay kufi baytu cel moyte.
+Nenkufi baytu bekostrui in jaleli desnyan, ji, fe nunya, no hay kufi baytu tas moyte.
 
-Fe resulta, sol maxim pesapul yen abil na kiraycudu baytu.
+Fe resulta, sol maxim pesapul person abil na kiraycudu baytu.
 
-Mas, fe pingun, Nederiyen sen pesapul fe kompara fe alo dexa de Ewropa.
+Mas, fe pingun, Nederiyen sen pesapul fe kompara fe person in alo dexa de Ewropa.
 
-Minus eger yusu cele sen na ogar ton alote hu da abil na ton-paya, kihoy fe xorhare baytu sen daymo daymo lil.
+Minus eger yusu cele sen na ogar ton alote hu da abil na ton-paya, kihoy fe na xorhare baytu sen daymo daymo lil.
 
 Duayum, yam umumi sen bur.
 
@@ -20,23 +20,23 @@ Pia, Nederiyen wala yam-kultura.
 
 Ete pospimpan koki, ji denwatu hu dento okur, dento sen cel axam.
 
-Cel midiyam, ete maxim pimpan velosi yam roti har xey per to.
+Cel midiyam, ete maxim pimpan velosi yam roti har banto per to.
 
 Tigayum, na xorhare Nederili nasyonya sen posasan (eger dento sen yusu cele).
 
-Ren musi na ogar in hin dexa nenhar esto dur 5 (lima) nyan, ji minus eger ren gamicu, ren musi na exgi sesu alo nasyonya.
+Ren musi na ogar in hin dexa nenhar esto dur 5 (lima) nyan, ji minus eger ren gamicu, ren musi na awresta sesu alo nasyonya.
 
-Am kompara dento yon na xorhare Franseli nasyonya, feki na gamicu sen kufi!
+Am kompara dento fe na xorhare Franseli nasyonya, feki na gamicu sen kufi!
 
 Careyum, na xorhare doste sen posasan.
 
 Nederiyen max or min esto na xorhare neo doste denwatu hu ete hare daju 25 nyan.
 
-Ete hare fiksado xugwanlari, ji na xorkone neo person no sen xey hu ete nyatupul fale da.
+Ete hare fiksado xugwanlari, ji na xorkone neo person no sen banto hu ete nyatupul fale da.
 
 Ete pia no filya na tongogi tontexto: person de ofisidom bekolyo kom person de ofisidom.
 
-Minus eger uyu hare komun interesxey (denpul kom Esperanto), yu xa posasan hare kihoy cel na hare neo doste.
+Minus eger uyu hare komun interesxey (denpul kom Esperanto), yu xa posasan hare kihoy cel na xorhare neo doste.
 
 Ji fe moy kaso, yu haja na pala Nederisa celki ete xa suki na pala ton yu.
 
