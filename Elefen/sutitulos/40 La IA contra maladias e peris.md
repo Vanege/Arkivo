@@ -1,4 +1,4 @@
-A presente, en 2023, on oia sempre sur la inteleto artifis.
+A presente, en 2023 (dumil dudes tre), on oia sempre sur la inteleto artifis.
 
 On investi enorme en companias cual usa la IA.
 
@@ -6,17 +6,17 @@ Acel aveni car ChatGPT ia mostra a un publica grande como potiosa la IA ia deven
 
 Oji, me va dona a tu alga esemplos de como on pote usa la IA per boni nosa vive.
 
-1) La deteta temprana de maladas.
+1) La deteta temprana de maladias.
 
-La corpo umana es multe complicada, un monton de fatores influe un monton de fatores, cual pote causa un malada o no.
+La corpo umana es multe complicada, un monton de fatores influe un monton de fatores, cual pote causa un maladia o no.
 
 On ave plu e plu informas sur la state de la corpo (per esemplo con la jenes e la nivel sangual de zucar) e sur la ambiente de vive de persones.
 
-Ma an la dotores la plu bon no pote trata tan multe de datos.
+Ma an la dotores la plu bon no pote trata tan multe de informas.
 
-Los nesesa un util cual pote analise automata un monton de datos, e cual pote trova la relatas ascondeda entre informas e maladas.
+Los nesesa un util cual pote analise automata un monton de datos, e cual pote trova la relatas ascondeda entre informas e maladias.
 
-Acel es multe importante, car la deteta temprana de maladas permete evita multe custas, car cura un malada custa multe plu ca preveni sua apare.
+Acel es multe importante, car la deteta temprana de maladias permete evita multe custas, car cura un maladia custa multe plu ca preveni sua apare.
 
 2) Contra la peri de comedas.
 

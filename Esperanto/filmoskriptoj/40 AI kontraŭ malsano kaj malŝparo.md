@@ -1,10 +1,10 @@
 Nuntempe en 2023, oni ĉiam aŭdas pri artefarita inteligenteco.
 
-Homoj investe amase en firmaoj kiuj uzas AI.
+Homoj investas amase en firmaoj kiuj uzas AI.
 
 Tio okazas ĉar ChatGPT montris al granda publiko kiom potenca tiu kapablo iĝis.
 
-Hodiaŭ mi donos al vi kelkajn ekzemploj de kiel oni povas uzi AI por plibonigi nian vivon.
+Hodiaŭ mi donos al vi kelkajn ekzemplojn de kiel oni povas uzi AI por plibonigi onian vivon.
 
 1) La frua detektado de malsanoj.
 
@@ -30,7 +30,7 @@ Sed por aferoj kiuj malboniĝas kun tempo (kiel manĝaĵo), la diferenco inter k
 
 Bonŝance, AI povas helpi pri tio.
 
-Per koni ĉiujn cirkonstancoj de iu tago, kaj kiom estis vendita en tiu tago.
+Per koni ĉiujn cirkonstancojn de iu tago, kaj kiom estis vendita en tiu tago.
 
 AI kapablas lerni tion kio influas la vendojn, kaj tiel povas antaŭvidi kiom estos vendita en posta tago surbaze de ĝiaj kondiĉoj.
 

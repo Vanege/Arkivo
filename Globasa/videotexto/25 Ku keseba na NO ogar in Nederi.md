@@ -30,7 +30,7 @@ Am kompara dento fe na xorhare Franseli nasyonya, feki na gamicu sen kufi!
 
 Careyum, na xorhare doste sen posasan.
 
-Nederiyen max or min esto na xorhare neo doste denwatu hu ete hare daju 25 nyan.
+Nederiyen max or min esto na xorhare neo doste denwatu hu ete hare daju 25 (duades lima) nyan.
 
 Ete hare fiksado xugwanlari, ji na xorkone neo person no sen banto hu ete nyatupul fale da.
 

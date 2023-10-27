@@ -40,6 +40,6 @@ Si me ta es en tal loca, me ta fa tota per reloca me tan rapida como posible, ca
 
 Un solve partal es pasea temprana en la matina, a esta momento la persones perilosa dormi la plu probable.
 
-Me atenta sempre a pasea temprana durante 10 minutos, acel dona a me la impresa ce me comensa bon la dia.
+Me atenta sempre a pasea temprana en la tempo de 10 minutos, acel dona a me la impresa ce me comensa bon la dia.
 
 Temprana en la matina, on ave frecuente lus bastante, e tota es calma.

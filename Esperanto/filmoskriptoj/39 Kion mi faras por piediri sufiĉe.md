@@ -16,7 +16,7 @@ Unue, mi devas trovi aferojn por fari dum mi piediras, sen tio, tio estus tro en
 
 Tial mi elŝutas multajn podkastojn al mia poŝtelefono, per la aplikaĵoj AntennaPod aŭ Overcast.
 
-Due, mi portas mian Bose kapaŭskultilojn, kiu kapablas nuligi bruojn.
+Due, mi portas mian Bose kapaŭskultilojn, kiuj kapablas nuligi bruojn.
 
 Bose estas tre bona marko, la orelkusenoj bone protektas kontraŭ la malvarmo.
 
@@ -24,7 +24,7 @@ La kapablo nuligi bruon helpas fokusiĝi sur la podkasto kiam oni piediras.
 
 Oni ankaŭ malpli aŭdas la bruon de aŭtoj, do piediri estas pli agrable.
 
-(Sed atentu ke vi ĉiam bone rigardas ĉu estas aŭto antaŭ ol trairis straton!)
+(Sed atentu ke vi ĉiam bone rigardas ĉu estas aŭto antaŭ ol trairi straton!)
 
 Trie, mi portas leĝeran mantelon kiu protektas min kontraŭ akvo.
 
