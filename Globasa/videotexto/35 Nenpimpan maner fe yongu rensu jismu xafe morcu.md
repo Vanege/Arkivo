@@ -34,9 +34,9 @@ Eger ren no haji abil na yongu sesu organo, keseba na malyongu?
 
 Multi bimar person haja neo kulye or ganzo.
 
-Fe ikaw fe maner fe morcu, organo abil na sen explasido ex morjismu, ji inplasido in jismu de bante hu da le haja to cel na maxmo bon jiwa. 
+Fe gwanxi fe maner fe morcu, organo abil na sen explasido ex morjismu, ji inplasido in jismu de bante hu da le haja to cel na maxmo bon jiwa. 
 
-Pia, na gibe rensu total jismu cel syensi, sen opsyon, fe ikaw fe dexa.
+Pia, na gibe rensu total jismu cel syensi, sen opsyon, fe gwanxi fe dexa.
 
 Dento abil na sahay syensili reserci or syensili alim.
 

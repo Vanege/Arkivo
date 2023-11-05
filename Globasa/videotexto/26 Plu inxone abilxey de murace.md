@@ -4,7 +4,7 @@ koski ete hare solunpul konduta fe kompara fe moy alo hewan.
 
 Nundin, mi xa onexa tas yu 4 (care) inxone abilxey, hu murace fale da.
 
-No moy murace abil na fale den plu xey. Dento ikaw jongu.
+No moy murace abil na fale den plu xey. Dento bedingya jongu.
 
 Misu video inhare sol xosu misal. Murace abil na fale multi alo inxone xey.
 
