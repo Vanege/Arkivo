@@ -24,7 +24,7 @@ Sed mi komprenas ĝin sufiĉe bone por ĝui simplajn podkastojn kiel "Curiosamen
 
 Mi esperas ke per aŭskulti iom da Hispana ĉiutage, mi progresive povos aŭskulti pli kompleksajn podkastojn, kie homoj parolas pli rapide, aŭ uzas pli da esprimoj, per akĉentoj malpli oftaj.
 
-La solaj podkastoj kiujn mi regule aŭskultas en Esperanto estas kern.punkto kaj Varsovia Vento, per duobla rapideco.
+La sola podkasto kiun mi regule aŭskultas en Esperanto estas kern.punkto, per duobla rapideco.
 
 Mi ŝatus aŭskulti pli da podkastoj en Esperanto, bedaŭrinde ili apenaŭ ekzistas pri temoj kiuj interesas min.
 
