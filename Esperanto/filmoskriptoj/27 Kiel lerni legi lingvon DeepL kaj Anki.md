@@ -42,7 +42,7 @@ Do, post instali Anki, kreu "kartaron".
 
 Ĉiu karto havas du flankojn, la antaŭa demanda flanko, kaj la malantaŭa responda flanko.
 
-En la antaŭan flankon, vi metu frazon kiu enhavas la vorton kiun vi me komprenas kaj volas kompreni, kaj vi grasigu tiun vorton.
+En la antaŭan flankon, vi metu frazon kiu enhavas la vorton kiun vi ne komprenas kaj volas kompreni, kaj vi grasigu tiun vorton.
 
 En la malantaŭan flankon, vi metu tradukon de la frazo, kiun vi povas havi per DeepL aŭ ChatGPT.
 

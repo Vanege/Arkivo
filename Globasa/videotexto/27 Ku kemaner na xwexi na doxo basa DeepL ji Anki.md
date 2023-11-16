@@ -72,4 +72,4 @@ Mi ijen ki na oko sama karta fe plu mara in un din sen malyongu fe watu.
 
 Koski hata denwatu hu ren possukses na sayso, ren xwexi, ji pimpan, na intizar dur un din sen kufi cel na ripul memori sahi jawabu.  
 
-Denseba (am oko ekrin-foto), ren am hare minimum 720 minuto cel "Lapses steps" (denwatu hu ren possukses fe karta).
+Denseba (am oko ekrin-foto), ren am hare minimum 720 (sabecen duades) minuto cel "Lapses steps" (denwatu hu ren possukses fe karta).
