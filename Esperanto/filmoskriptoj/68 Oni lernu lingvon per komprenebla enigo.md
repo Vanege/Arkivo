@@ -10,17 +10,17 @@ Sed mi pensas ke tio estas la sola maniero por bone lerni lingvon.
 
 En lingvo estas multege pli da gramatiko ol estas diritaj en gramatikaj klasoj.
 
-Gramatiko mem estas artefarita koncepto, kaj ekzistas miloj da esceptoj kies ekzisteco estas evidente pro la fakto ke lingvoj povas evolui kaj ŝanĝiĝi.
+Gramatiko mem estas artefarita koncepto, kaj ekzistas miloj da esceptoj kies ekzisteco estas nedubinda pro la fakto ke naturaj lingvoj evoluas kaj ŝanĝiĝas.
 
 La sola maniero lerni tiujn estas per aŭdado kaj aŭdado, legado kaj legado.
 
 Nur per sufiĉe da ripetado la cerbo povas memori ilin.
 
-Tio simple estas kiel memoro funkcias.
+Tio simple estas kiel memorado funkcias.
 
-Se oni vidas tion tiel, studi gramatikon eĉ tre malefika uzo de tempo.
+Se oni vidas tion tiel, oni komprenas ke studi gramatikon estas tre malefika uzo de tempo.
 
-Gramatikajn regulojn oni mem neintence lernas kiam la cerbo rimarkas aferojn kiuj ripetiĝas.
+Gramatikajn regulojn oni mem nekonscie lernas kiam la cerbo rimarkas aferojn kiuj ripetiĝas.
 
 La plej granda argumento favore al la lernado de lingvo per komprenebla enigo estas ke ĝi similas al kiel homoj lernas sian unuan lingvon.
 
@@ -30,7 +30,7 @@ Mi pli-malpli provis sekvi tiun teknikon por la Nederlanda, kaj mi pensas ke ĝi
 
 Sed por plirapidigi la procezon, mi kontrolis gramatikan retejon de tempo al tempo, sed nur kiam mi ne povis diveni mem la regulojn per nura observado.
 
-Mi ankaŭ uzis Anki por enmemorigi vortojn kaj esprimojn pli rapide.
+Mi ankaŭ uzis DeepL kaj Anki por enmemorigi la signifon de vortoj kaj esprimoj pli rapide.
 
 Sed ĉiuokaze, mi ĉefe lernis kiam mi uzis la Nederlandan por io alia ol studi.
 
