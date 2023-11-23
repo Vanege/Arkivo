@@ -1,6 +1,6 @@
 Nauru sen lil isula har peryaje fe 21 (duades un) murabali kilometro in Bahari Pacifiko.
 
-To hare lilmo min kom 11 000 ogaryen, ji to sen suli dexa.
+To hare lilmo min kom 11 000 ogaryen, ji to sen ikawkal dexa.
 
 To le sen un to of plu maxim pesapul dexa fol kwanti fe ogaryen.
 
@@ -28,7 +28,7 @@ Fe nunya, cuyo mamba fe pesa sen:
 
 - Na taslum pesa fe intrenasyonli sahay.
 
-- Na kwanli poshurudom (kontrato ton Awstrali).
+- Na kwanli poshurudom (kontrata ton Awstrali).
 
 Bur jotay de ekonomi de hin dexa pimpan beyongu denpul kom simbolo fe risko fe ekonomi hu da no sen doyan.
 

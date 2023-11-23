@@ -24,11 +24,11 @@ Noce sen maxmo hataripul, ji ren no furaha natura koski ren abil na oko nilto.
 
 No, mi le vole denwatu hu mi le sen maxmo juni, mas imisu atre le no vole.
 
-Fe nunya, mi hare lil apartamen, ji mi fikir ki to sen godomo lil cel ogarhewan.
+Fe nunya, mi hare lil apartamen, ji mi fikir ki to sen godomo lil tas ogarhewan.
 
 4. Kam yu le uje turi ex yusu dexa?
 
-Si, in Ewropa, daju un mara fe moyun dua nyan.
+Si, in Ewropa, daju un mara fe moy duayum nyan.
 
 Cuyo cel na turi ton misu famil or cel na idi cel Esperanto-tonata.
 
@@ -66,6 +66,6 @@ Mi multi suki bannumer tipo fe musika, mas mi no suki musikaxow, koski oto inhar
 
 Mi min suki okoible arte, mas in museum, mi abil na rahatu eger mi haja dento.
 
-Mi max suki na furaha arte fe trankwiloya de misu ogar.
+Mi max suki na furaha arte in trankwiloya de misu ogar.
 
 Denloka, mi cuyo ore musika durki mi fale aloto.

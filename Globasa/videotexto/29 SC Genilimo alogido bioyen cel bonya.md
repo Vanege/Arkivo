@@ -2,7 +2,7 @@ Genilimo Alogido Bioyen pimpan bemalaham, fe hataya ki oto abil na total alogi d
 
 Mas kemaner oto le sahay imi? Imi am oko.
 
-Dahabusim risi. Yon na genili maxusgi vitamin A in den pimpan danyam, syensiyen le gibe hala anti wala fe vitamin A. Den risi le juyuen plu giga person anti okonenabilya ji morya denloka hu risi sen basili yamxey. Hay plu versyon fe dahabukolordo risi. Maxim vitaminpul versyon hare maxmo bala jaloya.
+Dahabusim risi. Yon na genili maxusgi vitamin A in den pimpan danyam, syensiyen le gibe hala anti wala fe vitamin A. Den risi le juyuen plu giga person anti okonenabilya ji morya denloka hu risi sen basili yamxey. Hay plu versyon fe dahabukolordo risi. Maxim vitaminpul versyon hare maxmo bala jalo-kolor.
 
 Xali, insulin. Fe leya, imi ofcudu insulin of pankreas de swini or mumu. Dento sen kimapul ji nenprodutipul. Fe nunya, genilimo alogido bateri E. coli produti insanli insulin. Den insulin sen maxmo anjen ji nenkimapul, ji to sen maxmo asan na xorhare fal sukeri-bimaryen of total globa.
 
