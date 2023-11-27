@@ -2,6 +2,8 @@ Lastatempe, mi legis sciencajn artikolojn pri la efiko de drinkado je la sano de
 
 Evidentiĝis, ke kiam patro drinkas, la ŝanco ke bebo naskiĝas kun misformoj estas pli granda. (https://jamanetwork.com/journals/jamapediatrics/fullarticle/2778779)
 
+Do ambaŭ parentoj ne drinku se ili volas ricevi sanajn infanojn.
+
 Tio estas nur unu el la multaj malbonaj efikoj de la plej populara veneno: alkoholo.
 
 Ni ĉiuj scias ke homo kiu subite multe drinkas povas morti je ĝi, havi problemojn memori, ekhavi fortajn kapdolorojn.
