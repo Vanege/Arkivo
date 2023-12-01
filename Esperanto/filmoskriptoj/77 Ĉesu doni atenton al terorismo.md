@@ -1,4 +1,4 @@
-Terorismo estas neglektebla kaj grandparte neglektinda.
+Terorismo estas neglektebla kaj grandparte ignorinda.
 
 Ĉiujare, 25 000 homoj averaĝe mortas pro terorismo.
 
