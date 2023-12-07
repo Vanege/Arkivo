@@ -1,8 +1,8 @@
 Kam yu le banwatu vole na hare rubahe kom ogarhewan? Hin cinonpul hewan sen no sol rolyen in fabula, mas te beewreka pia in bannumer ogar kom ogarhewan.
 
-Prehay posyesen rubahe, hu da sen especifimo riprodutido dur plu generasi cel na ogar ton insan. Moyto le xoru fe xoru de desnyan 1950, in rusili syensidom tem celul ji geni. 
+Prehay posyesen rubahe, hu da sen especifimo riprodutido dur plu generasi cel na ogar ton insan. Moyto le xoru fe xoru de desnyan 1950 (kilo nuecen limades), in rusili syensidom tem celul ji geni. 
 
-Denloka, jui-laye 60-nyanli jaribi, gidado fal Dmitry Belyaev, le alogi yesen rubahe cel dosteli ogarhewan. Den hewan sen resulta of na riproduti rubahe hu da hare minim fobi ji atakefilya anti insan.
+Denloka, jui-laye 60(sisades)-nyanli jaribi, gidado fal Dmitry Belyaev, le alogi yesen rubahe cel dosteli ogarhewan. Den hewan sen resulta of na riproduti rubahe hu da hare minim fobi ji atakefilya anti insan.
 
 Fe kontrata fe yesen rubahe, posyesen rubahe sen jixifil, yuxifil, ji hata abil na intreaksyon ton alo ogarhewan.
 
