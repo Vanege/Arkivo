@@ -15,3 +15,5 @@ La plej granda nuna limigo en la voĉa transskribilo de DeepL estas, ke oni deva
 Sed la ilo jam estas tre efika por notado. Mi provos uzi ĝin kiam mi bezonas rapide fari notojn. Sed mi ankoraŭ ne scias ĉu la funkcio disponeblas poŝtelefone.
 
 Mi tre ŝatus havi ĉi tiun ilon, kiam mi estis studento, ĉar per ĝi mi povas aŭtomate registri kaj transskribi ĉion, kion la instruisto diras. Tiel mi povas koncentriĝi sur la enhavo de la kurso anstataŭ skribi tion, kion mi aŭdas.
+
+Posta redakto: mi fakte multe pli preferas uzi nur tekston. La devigata rapideco de parolado tro malhelpas pripensadon.
