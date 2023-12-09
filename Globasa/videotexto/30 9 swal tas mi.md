@@ -22,7 +22,7 @@ Noce sen maxmo hataripul, ji ren no furaha natura koski ren abil na oko nilto.
 
 3. Kam yu hare ogarhewan?
 
-No, mi le vole denwatu hu mi le sen maxmo juni, mas imisu atre le no vole.
+No, mi le vole denwatu hu mi sen maxmo juni, mas imisu atre le no vole.
 
 Fe nunya, mi hare lil apartamen, ji mi fikir ki to sen godomo lil tas ogarhewan.
 
