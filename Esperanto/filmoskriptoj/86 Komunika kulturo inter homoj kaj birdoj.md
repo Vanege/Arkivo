@@ -1,6 +1,6 @@
 Ekzistas multaj ekzemploj en la naturo de specioj kiuj helpas unu la alian. Ekzemplo estas kojoto kaj melo kiuj ĉasas kune.
 
-Sed kio estas unika estas la kunlaboro de homo kun alia besto. Kutime homoj profitas unudirekte de aliaj bestoj. Kiam la profito estas dudirekta, ĝi ĉiam estas imponita de la homo.
+Sed kio estas unika estas la kunlaboro de homo kun alia besto. Kutime homoj profitas unudirekte de aliaj bestoj. Kiam la profito estas dudirekta, ĝi ĉiam estas trudita de la homo.
 
 Sed ekzistas ekzemplo kie ambaŭ libervole kunlaboras kaj profitas: la kunlaboro kun la birdo nomita "Mielindikanto".
 
