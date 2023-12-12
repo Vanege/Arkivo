@@ -1,4 +1,4 @@
-Kiam mi ekhavis komputilon kiam mi estis 3 aŭ 4 jar-aĝa, la ludoj sur ĝi estas en la angla. Mi estis infano, kaj lingvoj ne gravis al mi. Mi ludis la ludojn, eĉ se mi ne komprenis la tekston (mi ĉiuokaze ankoraŭ ne povis perfekte legi la francan). Mi iom post iom komprenis la tekston per la kunteksto donita de la ludo.
+Kiam mi ekhavis komputilon kiam mi estis 3 aŭ 4 jar-aĝa, la ludoj sur ĝi estis en la angla. Mi estis infano, kaj lingvoj ne gravis al mi. Mi ludis la ludojn, eĉ se mi ne komprenis la tekston (mi ĉiuokaze ankoraŭ ne povis perfekte legi la francan). Mi iom post iom komprenis la tekston per la kunteksto donita de la ludo.
 
 Kiam mi havis malpli ol 10 jarojn mi ne havis rektan aliron al la interreto, sed jam sur la pakaĵoj de produktoj estis skribita en pluraj lingvoj. Kiam mi enuis, mi ofte distriĝis per provi malĉifri ilin.
 
