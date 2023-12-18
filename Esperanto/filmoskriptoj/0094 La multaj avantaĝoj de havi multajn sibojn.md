@@ -1,0 +1,9 @@
+Tre june, mi rimarkis ke la mondo ne estas justa. Kelkaj infanoj havas multajn sibojn (gefratojn), kelkaj infanoj ne. Mi havas multajn sibojn, kaj pro tio, mi konsideras min bonŝanca. Per ili mi povis havi multajn aferojn kiujn infanoj sen sibo ne povas havi.
+
+Ofte, mi kaj miaj siboj ludis kune per Nintendo GameCube kaj Nintendo Wii. Laŭ mi, la plej bona amuza maniero videoludi estas fari tion kun aliaj uloj en la sama ĉambro per la sama ludo. Ofte, mi aŭdis pri la aferoj kiuj okazos en la postaj jaroj (de lernejo aŭ de la vivo ĝenerale) per miaj siboj, kio iom helpis pretiĝi. Mi povis parte profiti de iliaj spertoj antaŭ ol mi spertis mem. Per ili, mi konstante ricevis diversecon de opinioj, pensoj kaj elektoj, kun videblaj lernigaj rezultoj.
+
+Malofte mankis al mi afero, ĉar kiam tio okazas, mi povis prunti ĝin de sibo. Fakte, pro la forteco de sibaj rilatoj, mi malofte sentis la bezonon havi amikon. Miaj familianoj estis ĉefe en la sama lernejo, do ofte estis la eblo resti kaj paroli kun ili. (Kiam mi ne restis en la biblioteko). Ĝis la komenco de universitato, mi sentis min sufiĉe socie ligita.
+
+Per la universitato ĉio iom rompiĝis, ĉar ni ĉiuj devis loĝi sole en aparta loko depende de kion ni studis. Komuna familia vivo eblis nur je kelkaj semajnfinoj monate. Subite mi devis rekonstrui tutan socian cirklon ĉirkaŭ mi (je kio mi malsukcesis) kaj kompensis ĝin per interretaj amikoj.
+
+Se iam mi volus adopti infanojn (nun, mi ne volas, kaj ĉiuokaze mia domo tro etas por infanoj), mi pensas ke devus almenaŭ esti 2 aŭ 3 infanoj. Unika infano sonas al mi kiel tro granda malavantaĝo kaj tro granda soleco. Per 2 infanoj, ili povas helpi unun la alian, sed ankoraŭ restas la risko ke ili ne ŝatas unu la alian. 3 infanoj sonas al mi kiel sekura kvanto, per kiu la infanoj jam havas multajn avantaĝojn. Pli ol 3 estas verŝajne tro da laboro por unu el la parentoj (krom se tiu volas dediĉi sian tutan tempon al la prizorgado de la infanoj).
