@@ -1,0 +1,15 @@
+Se oni vidas la koston de ĉio, oni havas la impreson ke la mondo ne estas farita por homoj kiuj loĝas sole.
+
+La plej videbla ekzemplo estas la superbazaroj. Pakaĵoj ofte ekzistas nur por "familia" aŭ "dupersona" grandeco. Se oni loĝas sole, oni povas daŭre aĉeti la grandajn pakaĵojn, sed tiam oni bezonas grandan frostujon aŭ plurfoje manĝi la samajn aferojn en sinsekvaj tagoj. Kiam unupersona pakaĵo ja ekzistas, la prezo (por unu persono) estas multe pli alta ol por dupersona grandeco. Homoj kiuj loĝas duope povas tiel facile pagi 30% malpli por ĉiu persono.
+
+Sed, je kvanto de mono, la plej granda diferenco estas la loĝejo. Por ŝanĝi unupersonan domon al dupersona domo, oni bezonas nur aldoni dormĉambron, sed la prezo de tia domo estas multe malpli ol duobla. Plie, se oni devas pagi ĉiumonate hipotekon, oni bezonas pagi nur la duonon se oni loĝas kun iu alia.
+
+Je ekonomia vidpunkto, estas tre maloportune ne loĝi kun iu alia. Sed kompreneble, mono ne estas la solo afero kiu decidas se oni loĝas sole aŭ ne. Taŭgaj domoj devas ekzisti, kaj taŭgaj homoj kun kiuj oni volus loĝi devas esti trovitaj. Kiam oni estas studento, estas multe pli normale loĝi kun aliaj studentoj. Sed post studado, kiam oni estas en la senfina aktiva vivo, oni konsideras privatecon kaj liberecon ene de propra hejmo multe pli gravaj. (Persone, mi ne tiom zorgas se almenaŭ mia dorm/laborĉambro estas sufiĉe granda kaj mi konservas tutan privatecon en ĝi).
+
+Tamen, pro la ekonomia avantaĝo, mi certas ke ekzistas multaj homoj kiuj pretus vivi kun aliaj homoj, eĉ se tiuj homoj ne estas koramikoj aŭ familianoj. Se la homoj estas decaj, kaj faras la bazajn kunvivajn taskojn (ofte la samaj en oficejoj), tio devus funkcii. Ekzistas granda kultura diferenco inter landoj. Ekzemple en Nederlando, tia maniero kunloĝi preskaŭ ne videblas, sed en landoj pli sudaj en Eŭropo okazas pli ofte ke homoj kune luas hejmon por almenaŭ jaro.
+
+La plej timiga afero pri kunloĝado estas se la alia(j) homo(j) ne respektus la bazajn kunvivajn regulojn (ekzemple purigi kuirejon kaj manĝtablon post uzo). Oni ankaŭ timas ŝteladon, do oni bezonas fidi la homon kun kiu oni loĝos. Kaj oni ankaŭ timas esti "blokita" dum jaro kun la homo kiu kunluas. Tiuj problemoj estus multe malpli grandaj se oni mem evitus havi altvalorajn fizikajn aferojn (kio pli facilas por studentoj) kaj se oni povus facile iri al alia hejmo se la kunloĝanto ne estas deca. Tiu lasta problemo estus iom solvita se kunloĝi estus pli normale en la socio. Tiam ekzistus multe pli da ebloj iri al alia kunloĝejo kaj estus multe pli facile fari tion. Retejo listigus ĉiujn eblojn, kun profilo de la kunloĝantoj kaj kiom multe ili pretas kunlabori pri la ĉiutagaj taskoj (kiel aĉetado kaj purigado).
+
+Kunloĝado (kaj kunluado) estas socia evoluo kiu estas kuraĝiginda:
+- unue ĉar ĝi permesus helpi la homojn kiuj ekonomie havas problemojn sed kiuj samtempe ne tiom estas ĝenataj pri kunloĝado.
+- due ĉar kunloĝado estas efika pri spaco kaj ekologia: anstataŭ havi 2 banĉambrojn kiujn oni uzas nur 5% de la tempo, estas pli bone havi nur 1 (eble iom pli granda), kiu estas uzata 10% de la tempo.
