@@ -1,0 +1,7 @@
+Ĉu vi kapablas dormi en 12 minutoj? Por multaj homoj, ne, tio estas la tempo bezonata por komenci dormi. Ankaŭ mi ne kapablis en la komenco, sed kun iom da trejniĝo, mi sukcesis kaj kutimiĝis. Nun mi ripozas tiom profunde, ke ofte okazas ke mi havas sonĝon dum dormeto.
+
+Sed kial dormeti? Ĉar la korpo ofte bezonas paŭzojn, kaj dormeti estas tre efika maniero fari tion. Per fermi oniajn okulojn en trankvila loko, kaj per pensi pri nenio specifa, la cerbo povas refokusiĝi. Malgravaj kaj ĝenaj pensoj malaperas, kvazaŭ oni liberigas spacon en la aktiva memoro (RAM angle) de persona komputilo.
+
+Post dormeto, mi povas tre facile fari atentoplenan laboron dum almenaŭ horo. Fakte, kiam mi estis studanto, fari dormeton estis bona maniero doni al mi kuraĝon por fari ion kion mi ne ŝatas. (Ŝajne la reflekso de "malvolo" ankoraŭ dormas.) Dormeto ankaŭ utilas por "forigi kuntekston". Ekzemple, se oni estas laca post tago de ofica laboro, fari dormeton helpas forigi la ofican kuntekston, kaj donas energion por plue labori sed por persona projekto.
+
+Sed kial 12-an minuton? Se mi dormas pli longe, mi vekiĝas laca, kaj tio malfruigas mian volon dormi dum la nokto (tio ne estas dezirinda). Pro simila kialo, mi faras maksimume 1 dormeton tage, kaj prefere ne en la vespero. (Mi faras ĝin kutime post la tagmanĝo.) Ĉu vi vekiĝas laca post dormeto? Verŝajne via dormeto daŭris tro longe (aŭ mankas al vi kutimiĝo), do nepre uzu vekilon!
