@@ -1,0 +1,11 @@
+Ie mi legis angle la jenan tradukitan aserton: "Se vi ne estas kontenta sola, ne serĉu koramikon.". Ju pli mi pensas pri la aserto, des pli bona mi trovas ĝin.
+
+Mi konas plurajn homojn kiuj diras malbonfarti pro soleco, kaj ke tiu problemo estus solvita se ili havus koramikon. Mi tamen havas la impreson, ke ili ne sufiĉe certas pri la fonto de sia malbonfarto. Mi mem foje pensas senti solecon, sed ofte, tio nur estas simptomo de enuo. Kiam mia cerbo ekokupiĝas pri io alia, mi ne havas tempon por pensi pri sociaj interagoj (aŭ la manko de ili). Sed ĉiuokaze, ĉiuj homoj malsamas.
+
+Mi tamen certas, ke havi koramikon kaj vivi kun ri ne tute solvas solecon (mi havas koramikon kaj ankoraŭ foje sentas min sola). Do oni ne vidu havi koramikon kiel magian solvon. Se la problemo vere estas soleco, pli facile (kaj eble pli efike) estas paroli kun familianoj aŭ konstrui neton de sociaj rilatoj, tiel ke preskaŭ ĉiam estas iu kiu povas paroli kun oni (aŭ fari aferon kun oni) kiam oni bezonas tion.
+
+La problemo kiam oni ekhavas koramikec-rilaton pro bezono, estas ke la bezono kreas streĉon en la rilato. Pro la timo perdi la rilaton (ĉar oni bezonas ĝin), oni povas iĝi malpli honesta al la alia homo pri la problemoj kiujn oni trovas. Multaj homoj restas en toksaj rilatoj dum tro longa tempo simple pro la timo troviĝi denove sola.
+
+Ĉu homoj kiuj ne estas kontentaj ne havu koramikon? Ne. Koramikeco estas io ofte utila, kio nature povas okazi, eĉ al homoj nekontentaj. Mi tamen konsilas ne aktive serĉi ĝin. Mi provis dum longa tempo kaj tio ne funkciis. Mi havas la impreson ke aktive serĉi koramikon ĉefe alportas frustriĝon kaj perdon de propra identeco (pro la volo larĝe plaĉi). Mi tamen hazarde trovis koramikon, simple per fari la aferojn kiujn mi ŝatas (fari videojn kaj helpi homojn pri Esperanto). (Eble mi simple tre bonŝancas, sed tio funkciis.)
+
+Fine, mi pensas ke la plej bona sinteno estas zorgi pri si mem (sen zorgi pri manko de koramiko) kaj diskonigi la aferojn kiujn oni ŝatas. Tio flankefike montras la plej honestan kaj allogan version de oni.
