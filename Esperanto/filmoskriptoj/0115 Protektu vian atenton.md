@@ -1,0 +1,11 @@
+La plej valora afero kiun vi havas ne estas via tempo, sed via atento. Por firmaoj, via tempo mem ne valoras, sed la atento kiun vi donas al la aferoj kiujn ili montras al vi, tio valoregas. Al kio vi interagas estas informo kiun ili povas uzi por pli bone vendi aferojn al vi, aŭ pli bone elekti la reklamojn kiujn vi vidos.
+
+Sociaj retoj (kaj fakte ĉiuj retejoj kaj servoj kiuj enhavas reklamojn) gajnas monon per via atento. Rezulte, ili provas kiom eble plej kapti ĝin per la diversaj iloj kiujn ili havas. En poŝtelefono, tio estas per sciigoj, defaŭlte aktivaj, kiuj povas haki vian koncentriĝon iam ajn. Ekzistas multaj metodoj per kiuj firmaoj provas preni vian atenton, kio estas en limigita kvanto ĉiutage.
+
+Estas grave konsideri ke la atento kiujn la firmaoj prenas de vi estas atento kiun vi ne plu havas por la aferoj, kiujn vi efektive volas fari. Niaj agoj estas determinitaj per nia atento, do oni zorgu pri onia ĉirkaŭo, tiel ke oni donu atenton al la aferoj kiujn oni volas fari, kaj oni ne donu atenton al tio kion oni ne volas fari. Ekzemple, se oni havas kuketojn sur onia labortablo, oni vidas ilin pli ofte ol se ili estas kaŝitaj en ŝranko. Rezulte, oni pli ofte atentas pri la kuketoj, kaj pli ofte okazos ke oni manĝos ilin (se ekzemple je unu de la okazoj, oni forgesas ke oni volas manĝi pli sane).
+
+Firmaoj faras same, ili puŝas siajn kuketojn plej proksime de vi, tiel ke vi plej ofte pensu pri ili anstataŭ pri la aferoj, kiujn vi volas fari. Anstataŭ kuiri kaj fari bongustan manĝaĵon, viaj kalorioj venos de la kuketoj. Nu, eble la kuketoj estas bongustaj, sed foje tio ne estas kion vi volis manĝi. Tiel vi iom perdas je libereco konduki vian vivon kiel vi volas.
+
+Baza afero estas malebligi ĉiujn tujajn sciigojn de ĉiuj aplikaĵoj. Homoj ne bezonas tion, kaj tio malhelpas efikan koncentriĝon. Nur urĝaj aferoj postulas tujecon. Se homoj bezonas kontakti urĝe, ili povas telefonvoki. Malebligi sciigojn ne signifas ignori homojn. Oni povas mem regule konsulti sociajn retojn je regulaj momentoj por ekzemple vidi ĉu novaj mesaĝoj venis en la lasta tago. Kio gravas estas ke oni mem decidu kiam kaj kie oni investu atenton.
+
+Alia baza afero estas uzi reklamblokilon. Tio estas parto de bonsana uzo de la interreto. Bonvolu legi mian artikolon pri tio. (0056 Uzu reklamblokilon por igi la interreton pli bona)
