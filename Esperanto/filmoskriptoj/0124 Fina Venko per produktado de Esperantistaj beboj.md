@@ -1,0 +1,9 @@
+Ĉu vi konas la amiŝan komunumon en Nordameriko? En 1920 estis nur 5 000 de ili, sed en 2020 jam estis 350 000 de ili. Kio okazis? Esence, ili faris multe da beboj, kaj bone zorgis ke beboj naskitaj en amiŝa komunumo malofte foriras de la komunumo. Tiel la popolo senĉese kreskis je 4% ĉiujare. Kaj simile kreskis la nombro de parolantoj de ilia lingvo.
+
+La ideo uzi similan teknikon por Esperanto amuzas min. Se vi laĉiĝas je konvinki homojn lerni Esperanton, sed tamen volas plialtigi la nombron de Esperantistoj (sen nepre krei Esperantistan enhavon), restas la eblo rekti produkti novajn homojn. Oni ne bezonas konvinki bebojn pri la utileco de Esperanto por ke ili akiros ĝin (sufiĉas sufiĉe paroli al ili antaŭ ol ili kapablas rifuzi).
+
+Se Esperantistoj faras averaĝe pli da beboj ol neesperantistoj, kaj Esperantistoj pli bone transdonas sian lingvon ol neesperantistoj, tio signifas ke la elcento de Esperantistoj en la tuta homaro kreskas. Post sufiĉe da tempo, la fina venko nepre okazos.
+
+Atingi tion (fari pli da beboj ol neesperantistoj) estas tamen ege malrealisme. La Esperantistaro ne estas kulture fermita grupo do ne eblas devigi vivregulojn al Esperantistoj (ĉiuokaze, devigi vivmanieron al homoj aĉegas). Oni bezonus krei frenezan Esperantan kulturon kie krei Esperanto-parolantojn bebojn estus granda prestiĝo kaj ĉesi uzi Esperanton estus malhelpata per la plej severa socia premo, eble per timigo de senfina postmorta puno. 
+
+Honeste, estus terure. Pli bonas fidi la homan raciecon kaj konvinki homojn kiuj havus personan profiton per Esperanto, anstataŭ ĉirkaŭfiki en Esperanto-renkontiĝoj... Devigi infanojn kaj komunumojn aĉas. Mi trovas personan liberecon multflanke pli grava ol la multobliĝo de Esperanto-parolantoj.
