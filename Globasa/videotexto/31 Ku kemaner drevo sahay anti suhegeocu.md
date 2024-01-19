@@ -2,7 +2,7 @@ Kos klima-krisis, max ji max loka sencu suhegeo.
 
 Suhegeo maxdaycu ji oto max ji max koberi perya de Dunya.
 
-Kos nenabilya na nongyo in suhegeo, multi person musi na awidi.
+Kos nenabilya na nongyo in suhegeo, multi person musi na awresta sesu ogar.
 
 Anti suhegeocu, hay multi projeto in Afrika ji Asia cel na planta multi drevo.
 
@@ -30,7 +30,7 @@ Dento engyanpulgi perya, ji dento sahay alo planta na xorxunjan.
 
 Limayum, drevo bon bujo ji disgibe hawa-gileya wey se.
 
-Am kompara yon termopul xatu, feki hu velosi awdeleza or velosi gascu.
+Am kompara fe termopul xatu, denloka hu sui velosi awdeleza or velosi gascu.
 
 Yon hay de drevo, sui resta maxmo lungo fe jowey.
 
