@@ -19,3 +19,5 @@
 - Komenci labori kiom eble plej frue en la mateno. Estas en la mateno ke oni havas la plej fortan kapablon komenci taskon kiun oni iom timas aŭ malŝatas. Kaj post komenci estas pli facile resti fokusita.
 
 - Ne tuŝi socian reton antaŭ la fino de la tago. Se oni ekkomencas legi konversacion/grupon, onia cerbo ĉiam atakas onin por ke oni kontrolu ĉu io aperis. Ĉia aplikaĵo aŭ retejo kie afero povas aperi dum la tago (ekzemple novaĵretejo) devas esti konsiderata kiel socia reto kaj devas esti uzata nur post laboro estas finita. Se oni havas truon de tempo, oni plenigu ĝin per podkasto aŭ libro, aŭ io ajn stabila kun relative antaŭvidebla kvanto de enhavo, kiun oni povas ĉesi kiam ajn oni volas.
+
+- Poŝtelefono kaj libertemp-komputilo estu kiom eble plej for. (Sama tekniko kiam oni volas dormi.)
