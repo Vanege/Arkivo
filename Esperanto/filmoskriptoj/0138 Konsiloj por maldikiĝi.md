@@ -1,0 +1,9 @@
+Se mi havus amikon kiu provas maldikiĝi kaj pretas ricevi konsilojn, mi donus tiujn:
+
+- Ne provu kompensi manĝaĵon per pli da sporto. Mi neniam trovis bonan pruvon ke tio funkcias. Post sportumi, oni ankaŭ pli malsatas, kio faras ke homoj manĝas pli. Notu ke Mars-stango enhavas la kvanton de energio de kurado dum 38 minutoj. Kompensi per sporto estas malbona strategio, kaj se vi ne ŝatas la sporton mem, vi ne plu faros post kelkaj tagoj.
+- Dietoj kiuj konsistas je ne plu manĝi specifajn aferojn tre malofte sukcesas. Se homoj bezonas aktivan energion por ne manĝi ion, ili ne plu sukcesos post iom da tempo.
+- Dietoj kiuj konsistas je manĝi pli da specifaj aferoj pli ofte sukcesas. Anstataŭ havi negativan penson "mi ne plu rajtas tion", la pozitiva penso "mi rajtas manĝi tion kiom multe mi volas" estas pli facile tenebla dum longa tempo. Oni ne pensu "mi ne plu rajtas manĝi grasan aferon", sed "mi rajtas manĝi kiom multe da fruktoj kaj legomoj kiom mi volas!". Per manĝi pli da io kio ne havas multe da kalorio, oni aŭtomate kaj nekonscie manĝas malpli da io kio havas multe da kalorio.
+- La korpo nature ĉesas voli manĝi kiam la stomako estas plena. Do bona tekniko estas komenci tagon per granda glaso da akvo, kaj trinki glason da akvo antaŭ ĉiu manĝo.
+- Ne hezitu manĝi inter manĝoj aferojn kiuj plenas je fibroj (kiel fruktoj kaj legomoj), tio helpas rapide atingi saton. Dikaj akvoplenaj aferoj estas idealaj (kiel tomatoj, kukumoj, karotoj).
+- Lasu tiujn bonsanajn manĝaĵojn en tre videblaj kaj atingeblaj lokoj. Kaŝu kion vi ne volas manĝi. (Kaj ideale ne aĉetu ilin.)
+- Aĉetu pli etajn telerojn. Homoj emas meti malpli da manĝaĵo sur etajn telerojn. https://www.journals.uchicago.edu/doi/abs/10.1086/684441
