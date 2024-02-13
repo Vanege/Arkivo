@@ -8,7 +8,7 @@ Sed mia tuta viva sperto indikas al mi ke ventumi ne funkcias. Kaj mia observado
 
 Homoj kiuj plej malsaniĝas de ĉagreno-ventumado estas tiuj kiuj faras tion en interretaj babilejoj kun centoj da eblaj legantoj. Mi rimarkas ke:
 
-- Ili ofte (konscie aŭ ne) troigas negative la eventojn, eble por ricevi pli da atento aŭ kompati%o.
+- Ili ofte (konscie aŭ ne) troigas negative la eventojn, eble por ricevi pli da atento aŭ kompato.
 - Ili ĉagreniĝas kiam homoj ne reagas al iliaj mesaĝoj, kvazaŭ homoj ne zorgus pri ili.
 - Ili ĉagrenas la homojn kiuj provas helpi ilin farti pli bone. Helpantoj rimarkas ke la ventumantoj ne estas helpeblaj, kvazaŭ ili ne volas iam ĉesi bezoni ventumi.
 
