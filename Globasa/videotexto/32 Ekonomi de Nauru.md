@@ -36,6 +36,6 @@ Fe nunya, dexa sen kriban totalmo ikawne fe Awstrali.
 
 Ji dento sen jinji resulta de na malyongu sesu naturali resurso.
 
-Hay sugu "burbaraka de naturali resurso". Fol to, dexa har un naturali resurso (denpul kom [petroleum/crude_oil]) hare risko fe godo fokus tem hin resurso, ji kos dento, dexa wanji na todzi in alo industrili or servili domeni.
+Hay sugu "burbaraka de naturali resurso". Fol to, dexa har un naturali resurso (denpul kom gasolin) hare risko fe godo fokus tem hin resurso, ji kos dento, dexa wanji na todzi in alo industrili or servili domeni.
 
-Dento sen perfeto misal fe fikir cel ner xaya watu fe tayti fe fikir cel teli xaya.
+Dento sen perfeto misal fe fikir cel ner xaya fe tayti fe fikir cel teli xaya.

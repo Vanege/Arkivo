@@ -39,7 +39,7 @@ Unu el la du lupoj kiu fuĝis mortis.
 Unu el la du lupoj kiu fuĝis estas grave vundita de lupo kiu ne eskapis.
 Bestokuracisto konkludas ke la unua mortis pro streso.
 La du lupoj ne estis akceptitaj kaj ŝatitaj en la lupa grupo.
-Kaj ili faris ĉion, kion ili povis, por esti for de ili.
+Kaj ili faris ĉion, kion ili povis, por esti for de la aliaj lupoj.
 Bedaŭrinde, ili ne estis komprenitaj.
 Per rekapti ilin, la lupoj estis realportitaj al siaj problemoj, al grupaj problemoj, kaj al morto.
 
