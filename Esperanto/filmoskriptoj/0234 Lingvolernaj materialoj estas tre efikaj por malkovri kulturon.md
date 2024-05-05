@@ -1,0 +1,9 @@
+Granda parto de la plezuro en lingvolernado estas malkovri aferojn. Homoj kiuj parolas malsamajn lingvojn emas fari malsamajn aferojn. Per lerni kaj uzi malsamajn lingvojn, oni kontaktas tiujn malsamajn aferojn, kiuj povas esti interesaj kaj lernigaj.
+
+Lastatempa ekzemplo estas la ĥabrohaŭza kulturo de Nederlando. (Ĥabrohaŭzo estas tipo de muziko). Sen koni la Nederlandan kaj sen konsumi mediaĵojn en tiu lingvo, estus tre malgranda ŝanco ke mi aŭdus pri ĝi. (Ĝi ne estas tipo de muziko kiu tre interesas min, sed nu, tio nur estas ekzemplo :p).
+
+Kiam mi lernas lingvon, mi ŝatas uzi porlernantajn kanalojn kaj podkastojn kiuj parolas pri specifaj kulturaĵoj. Tio estas tre efika maniero lerni pri interesaj aŭ novaj aferoj (por mi), ĉar la kreantoj jam selektis la kulturaĵojn kiuj estas gravaj aŭ unikaj al landa aŭ lingva kulturo. Tiel mi aŭdis hodiaŭ pri la fama germana humoristo Loriot, kaj malkovris sufiĉe amuzan filmon https://www.youtube.com/watch?v=a6WQaIIZ248
+
+Grandparte, tiuj porlernantaj kanaloj estas pli interesaj ol novaĵgazetoj. Novaĵgazetoj fokusiĝas pri aferoj novaj, sed ne pri la aferoj normalaj kaj esencaj (kiuj estas multe pli gravaj por kompreni homojn kaj la mondon). Per la podkastoj "Slow German mit Annik Rubens" kaj "Slow German listening experience", mi ekzemple lernis pri la panokulturo, pri kelkaj popularegaj televidserioj, pri specifaj urboj...
+
+Se oni volas lerni pri la parolantoj de la germana mem, la Youtube-a kanalo Easy German estas bonega, ĉar ĝi konsistas el la intervjuado de normalaj (sed urbaj) homoj. Eĉ por lingvoj kiujn mi ne lernas, mi ŝatas spekti Easy XXX (XXX estas nomo de lingvo) ĉar ĝi donas al mi la pensojn de normalaj homoj, kio mankas en mondo kie tro da atento estas donata al ekstremaj opinioj.
