@@ -57,4 +57,3 @@ Tomatoj havas unikan guston, malmulte da kalorio kaj multe da akvo.
 Ili povas resti dum longa tempo en fridujo.
 
 En somero, nenio estas pli agrabla ol manĝi freŝan tomaton de tempo al tempo!
-

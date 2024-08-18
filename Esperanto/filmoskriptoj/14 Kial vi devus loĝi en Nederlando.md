@@ -65,4 +65,3 @@ Sed lerni la lokan lingvon estas grave por senti sin pli bone integrita.
 https://en.wikipedia.org/wiki/World_Happiness_Report
 
 https://fra.europa.eu/sites/default/files/fra-eu-lgbt-survey-main-results_tk3113640enc_1.pdf
-
