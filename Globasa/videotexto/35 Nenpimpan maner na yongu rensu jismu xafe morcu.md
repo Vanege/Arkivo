@@ -6,11 +6,11 @@ Yu dayible kone inturan or atex, mas hay pia multi alo maner.
 
 Idey sen, fori xafe morcu, na hanmangi proceso fe celulli morcu.
 
-Cel na fale to, ren tayti damu yon hifazine likwido, ji yon na plasi jismu in tubo hu da sen pul fe daybardi likwido.
+Cel na fale to, ren tayti damu yon hifazine likwido, ji yon na plasi jismu cel in tubo hu da sen pul fe daybardipul likwido.
 
 Idey sen na hifazi jismuli estrutur dur maxim dure.
 
-Person hu da karar na fale dento xafe sesu morcu fikir ki, ible, medis ji tekno de xaya xa abil na sehagi te ji na rujiwa te.
+Person hu da karar na fale dento xafe sesu morcu fikir ki, ible, medis ji tekno de xaya xa abil na sehagi te ji na rujiwagi te.
 
 Denmaner, te xa abil na maxmo lungo jiwa, in neo globa, har memori hu te nun hare da.
 
@@ -24,19 +24,19 @@ Fol multi person, almasicu sen simbolo fe day jaci ji finikalya.
 
 Mas, am jixi, ki hay nil aloya intre karbon of insanli jismu ji karbon of he banto, fe misal of moksay.
 
-Fe folo, denpul almasi ger hare jaci cuyo fol person hu da jixi asel de den almasi, fe folo, to ger hare espesyal jaci sol fol konedoyen de moryen.
+Fe folo, denpul almasi ger hare jaci cuyo fol person hu da jixi asel de den almasi, fe folo, to ger hare espesyal jaci sol fol bekoneyen de moryen.
 
 Sim, karbon sen yonguible cel na krea kwasi moyto, fe folo, bannumer person karar na yongu sesu ramadu cel na sencu vinil-disko or hata arteatex. 
 
-3) Bongibe fe mon (or bage) de jismu.
+3) Bongibe fe jismumon.
 
-Eger ren no haji abil na yongu sesu organo, keseba na malyongu?
+Eger ren no haji abil na yongu sesu organo, keseba na poshifazi to?
 
 Multi bimar person haja neo kulye or ganzo.
 
-Fe gwanxi fe maner fe morcu, organo abil na sen explasido ex morjismu, ji inplasido in jismu de bante hu da le haja to cel na maxmo bon jiwa. 
+Fe gwanxi fe maner fe morcu, organo abil na sen explasido cel ex morjismu, ji inplasido cel in jismu de bante hu da haja to cel na maxmo bon jiwa. 
 
-Pia, na gibe rensu total jismu cel syensi, sen opsyon, fe gwanxi fe dexa.
+Pia, na gibe rensu total jismu cel syensi sen opsyon, fe gwanxi fe dexa.
 
 Dento abil na sahay syensili reserci or syensili alim.
 
